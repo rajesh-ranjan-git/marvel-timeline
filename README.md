@@ -371,53 +371,53 @@
 
 ## Marvel Cinematic Universe upcoming movies and shows
 
-1. Marvel Zombies (animated series)  
+1. [Marvel Zombies](https://google.com/search?q=marvel+zombies+animated+series) (animated series)  
    **Premiere Date:** October 2025
 
-2. Wonder Man (series)  
+2. [Wonder Man](https://google.com/search?q=wonder+man+series) (series)  
    **Premiere Date:** December 2025
 
-3. Spider-Man: Brand New Day  
+3. [Spider-Man: Brand New Day](https://google.com/search?q=spider+man+brand+new+day)  
    **Premiere Date:** July 31, 2026
 
-4. Avengers: Doomsday (2026)  
+4. [Avengers: Doomsday](https://google.com/search?q=avengers+doomsday+2026) (2026)  
    **Premiere Date:** December 18, 2026
 
-5. The Punisher Special  
+5. [The Punisher Special](https://google.com/search?q=the+punisher+special)  
    **Premiere Date:** 2026
 
-6. Daredevil: Born Again Season 2  
+6. [Daredevil: Born Again Season 2](https://google.com/search?q=daredevil+born+again+season+2)  
    **Premiere Date:** 2026
 
-7. Vision (series)  
+7. [Vision](https://google.com/search?q=vision+series) (series)  
    **Premiere Date:** 2026
 
-8. Avengers: Secret Wars (2027)  
+8. [Avengers: Secret Wars](https://google.com/search?q=avengers+secret+wars+2027) (2027)  
    **Premiere Date:** December 17, 2027
 
-9. Armor Wars  
+9. [Armor Wars](https://google.com/search?q=armor+wars)  
    **Premiere Date:** TBA
 
-10. Blade (2025)  
+10. [Blade](https://google.com/search?q=blade+2025) (2025)  
     **Premiere Date:** TBD
 
-11. Shang-Chi 2  
+11. [Shang-Chi 2](https://google.com/search?q=shang+chi+2)  
     **Premiere Date:** TBA
 
-12. Black Panther 3  
+12. [Black Panther 3](https://google.com/search?q=black+panther+3)  
     **Premiere Date:** TBA
 
-13. The X-Men  
+13. [The X-Men](https://google.com/search?q=the+x+men)  
     **Premiere Date:** TBA
 
-14. Ryan Coogler’s Wakanda-Set Television Series  
+14. [Ryan Coogler’s Wakanda-Set Television Series](https://google.com/search?q=ryan+coogler+s+wakanda+set+television+series)  
     **Premiere Date:** TBA
 
-15. Untitled Okoye Series  
+15. [Untitled Okoye Series](https://google.com/search?q=untitled+okoye+series)  
     **Premiere Date:** TBA
 
-16. Untitled Scarlett Johansson Production  
+16. [Untitled Scarlett Johansson Production](https://google.com/search?q=untitled+scarlett+johansson+production)  
     **Premiere Date:** TBA
 
-17. Nova  
+17. [Nova](https://google.com/search?q=nova)  
     **Premiere Date:** TBA
