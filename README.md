@@ -166,7 +166,7 @@
     **Starring:** Chadwick Boseman, Michael B. Jordan, Lupita Nyong'o, Danai Gurira  
     **Directed By:** Ryan Coogler
 
-29. Spider-Man: Homecoming (July 7, 2017)
+29. Spider-Man: Homecoming (July 7, 2017)  
     **Starring:** Tom Holland, Michael Keaton, Robert Downey Jr., Marisa Tomei  
     **Directed By:** Jon Watts
 
@@ -196,10 +196,10 @@
 37. Marvel's The Punisher: Season 2 (November 17, 2017)  
     **Starring:** Jon Bernthal, Ben Barnes, Amber Rose Revah, Jason R. Moore
 
-38. Marvel's Jessica Jones: Season 3 (November 20, 2015)
+38. Marvel's Jessica Jones: Season 3 (November 20, 2015)  
     **Starring:** Krysten Ritter, Rachael Taylor, Eka Darville, Carrie-Anne Moss
 
-39. Ant-Man and The Wasp (July 6, 2018)
+39. Ant-Man and The Wasp (July 6, 2018)  
     **Starring:** Paul Rudd, Evangeline Lilly, Michael Douglas, Michael Peña  
     **Directed By:** Peyton Reed
 
@@ -317,56 +317,57 @@
     **Directed By:** Jake Schreier
 
 72. Eyes of Wakanda (animated series) (August 1, 2025)
+    **Starring:** Winnie Harlow, Danai Gurira, Cress Williams
 
 ## Marvel Cinematic Universe upcoming movies and shows
 
-1. Marvel Zombies (animated series)
+1. Marvel Zombies (animated series)  
    **Premiere Date:** October 2025
 
-2. Wonder Man (series)
+2. Wonder Man (series)  
    **Premiere Date:** December 2025
 
-3. Spider-Man: Brand New Day
-   Release Date: July 31, 2026
+3. Spider-Man: Brand New Day  
+   **Premiere Date:** July 31, 2026
 
-4. Avengers: Doomsday (2026)
+4. Avengers: Doomsday (2026)  
    **Premiere Date:** December 18, 2026
 
-5. The Punisher Special
-   Release Date: 2026
-
-6. Daredevil: Born Again Season 2
-   Release Date: 2026
-
-7. Vision (series)
+5. The Punisher Special  
    **Premiere Date:** 2026
 
-8. Avengers: Secret Wars (2027)
+6. Daredevil: Born Again Season 2  
+   **Premiere Date:** 2026
+
+7. Vision (series)  
+   **Premiere Date:** 2026
+
+8. Avengers: Secret Wars (2027)  
    **Premiere Date:** December 17, 2027
 
-9. Armor Wars
+9. Armor Wars  
    **Premiere Date:** TBA
 
-10. Blade (2025)
+10. Blade (2025)  
     **Premiere Date:** TBD
 
-11. Shang-Chi 2
+11. Shang-Chi 2  
     **Premiere Date:** TBA
 
-12. Black Panther 3
+12. Black Panther 3  
     **Premiere Date:** TBA
 
-13. The X-Men
+13. The X-Men  
     **Premiere Date:** TBA
 
-14. Ryan Coogler’s Wakanda-Set Television Series
+14. Ryan Coogler’s Wakanda-Set Television Series  
     **Premiere Date:** TBA
 
-15. Untitled Okoye Series
+15. Untitled Okoye Series  
     **Premiere Date:** TBA
 
-16. Untitled Scarlett Johansson Production
+16. Untitled Scarlett Johansson Production  
     **Premiere Date:** TBA
 
-17. Nova
+17. Nova  
     **Premiere Date:** TBA
