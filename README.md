@@ -65,138 +65,138 @@
    **Starring:** Chris Evans, Hayley Atwell, Sebastian Stan, Tommy Lee Jones  
    **Directed By:** Joe Johnston
 
-2. Marvel One-Shot: Agent Carter (2013)
-   **Starring:** Hayley Atwell, Bradley Whitford, Tim Trobec, Shane Black
+2. Marvel One-Shot: Agent Carter (2013)  
+   **Starring:** Hayley Atwell, Bradley Whitford, Tim Trobec, Shane Black  
    **Directed By:** Louis D'Esposito
 
-3. Captain Marvel (2019)
-   **Starring:** Brie Larson, Samuel L. Jackson, Ben Mendelsohn, Djimon Hounsou
+3. Captain Marvel (2019)  
+   **Starring:** Brie Larson, Samuel L. Jackson, Ben Mendelsohn, Djimon Hounsou  
    **Directed By:** Anna Boden, Ryan Fleck
 
-4. Iron Man (2008)
-   **Starring:** Robert Downey Jr., Terrence Howard, Gwyneth Paltrow, Jeff Bridges
+4. Iron Man (2008)  
+   **Starring:** Robert Downey Jr., Terrence Howard, Gwyneth Paltrow, Jeff Bridges  
    **Directed By:** Jon Favreau
 
-5. Iron Man 2 (2010)
-   **Starring:** Robert Downey Jr., Gwyneth Paltrow, Don Cheadle, Scarlett Johansson
+5. Iron Man 2 (2010)  
+   **Starring:** Robert Downey Jr., Gwyneth Paltrow, Don Cheadle, Scarlett Johansson  
    **Directed By:** Jon Favreau
 
-6. Marvel One-Shot: A Funny Thing Happened on the Way to Thor's Hammer (2011)
-   **Starring:** Clark Gregg, Jessica Manuel, Jeff Prewett, Zach Hudson
+6. Marvel One-Shot: A Funny Thing Happened on the Way to Thor's Hammer (2011)  
+   **Starring:** Clark Gregg, Jessica Manuel, Jeff Prewett, Zach Hudson  
    **Directed By:** Leythum
 
-7. The Incredible Hulk (2008)
-   **Starring:** Edward Norton, Liv Tyler, Tim Roth, William Hurt
+7. The Incredible Hulk (2008)  
+   **Starring:** Edward Norton, Liv Tyler, Tim Roth, William Hurt  
    **Directed By:** Louis Leterrier
 
-8. Thor (2011)
-   **Starring:** Chris Hemsworth, Natalie Portman, Anthony Hopkins, Tom Hiddleston
+8. Thor (2011)  
+   **Starring:** Chris Hemsworth, Natalie Portman, Anthony Hopkins, Tom Hiddleston  
    **Directed By:** Kenneth Branagh
 
-9. Marvel One-Shot: The Consultant (2011)
-   **Starring:** Clark Gregg, Maximiliano Hernandez, Deborah Knox, Robert Downey Jr.
+9. Marvel One-Shot: The Consultant (2011)  
+   **Starring:** Clark Gregg, Maximiliano Hernandez, Deborah Knox, Robert Downey Jr.  
    **Directed By:** Leythum
 
-10. Marvel's the Avengers (2012)
-    **Starring:** Robert Downey Jr., Chris Evans, Mark Ruffalo, Chris Hemsworth
+10. Marvel's the Avengers (2012)  
+    **Starring:** Robert Downey Jr., Chris Evans, Mark Ruffalo, Chris Hemsworth  
     **Directed By:** Joss Whedon
 
-11. Item 47 (2012)
-    **Starring:** Lizzy Caplan, Jesse Bradford, Maximiliano Hernandez, Titus Welliver
+11. Item 47 (2012)  
+    **Starring:** Lizzy Caplan, Jesse Bradford, Maximiliano Hernandez, Titus Welliver  
     **Directed By:** Louis D'Esposito
 
-12. Thor: The Dark World (2013)
-    **Starring:** Chris Hemsworth, Natalie Portman, Tom Hiddleston, Stellan Skarsgård
+12. Thor: The Dark World (2013)  
+    **Starring:** Chris Hemsworth, Natalie Portman, Tom Hiddleston, Stellan Skarsgård  
     **Directed By:** Alan Taylor
 
-13. Iron Man 3 (2013)
-    **Starring:** Robert Downey Jr., Gwyneth Paltrow, Don Cheadle, Guy Pearce
+13. Iron Man 3 (2013)  
+    **Starring:** Robert Downey Jr., Gwyneth Paltrow, Don Cheadle, Guy Pearce  
     **Directed By:** Shane Black
 
-14. Captain America: The Winter Soldier (2014)
-    **Starring:** Chris Evans, Scarlett Johansson, Samuel L. Jackson, Sebastian Stan
+14. Captain America: The Winter Soldier (2014)  
+    **Starring:** Chris Evans, Scarlett Johansson, Samuel L. Jackson, Sebastian Stan  
     **Directed By:** Anthony Russo, Joe Russo
 
-15. Guardians of the Galaxy (2014)
-    **Starring:** Chris Pratt, Zoe Saldaña, Dave Bautista, Vin Diesel
+15. Guardians of the Galaxy (2014)  
+    **Starring:** Chris Pratt, Zoe Saldaña, Dave Bautista, Vin Diesel  
     **Directed By:** James Gunn
 
-16. Guardians of the Galaxy Vol. 2 (2017)
-    **Starring:** Chris Pratt, Zoe Saldaña, Bradley Cooper, Dave Bautista
+16. Guardians of the Galaxy Vol. 2 (2017)  
+    **Starring:** Chris Pratt, Zoe Saldaña, Bradley Cooper, Dave Bautista  
     **Directed By:** James Gunn
 
-17. I Am Groot
+17. I Am Groot  
     **Starring:** Vin Diesel
 
-18. Marvel's Daredevil: Season 1
+18. Marvel's Daredevil: Season 1  
     **Starring:** Charlie Cox, Rosario Dawson, Vincent D'Onofrio, Deborah Ann Woll
 
-19. Marvel's Jessica Jones: Season 1
+19. Marvel's Jessica Jones: Season 1  
     **Starring:** Krysten Ritter, Rachael Taylor, Eka Darville, Carrie-Anne Moss
 
-20. Avengers: Age of Ultron (2015)
-    **Starring:** Robert Downey Jr., Chris Hemsworth, Mark Ruffalo, Chris Evans
+20. Avengers: Age of Ultron (2015)  
+    **Starring:** Robert Downey Jr., Chris Hemsworth, Mark Ruffalo, Chris Evans  
     **Directed By:** Joss Whedon
 
-21. Ant-Man (2015)
-    **Starring:** Paul Rudd, Michael Douglas, Evangeline Lilly, Corey Stoll
+21. Ant-Man (2015)  
+    **Starring:** Paul Rudd, Michael Douglas, Evangeline Lilly, Corey Stoll  
     **Directed By:** Peyton Reed
 
-22. Marvel's Daredevil: Season 2
+22. Marvel's Daredevil: Season 2  
     **Starring:** Charlie Cox, Jon Bernthal, Elodie Yung, Deborah Ann Woll
 
-23. Marvel's Luke Cage: Season 1
+23. Marvel's Luke Cage: Season 1  
     **Starring:** Mike Colter, Mahershala Ali, Alfre Woodard, Simone Missick
 
-24. Marvel's Iron Fist: Season 1
+24. Marvel's Iron Fist: Season 1  
     **Starring:** Finn Jones, David Wenham, Rosario Dawson, Jessica Henwick
 
-25. Marvel's The Defenders: Season 1
+25. Marvel's The Defenders: Season 1  
     **Starring:** Charlie Cox, Krysten Ritter, Mike Colter, Finn Jones
 
-26. Captain America: Civil War (2016)
-    **Starring:** Chris Evans, Robert Downey Jr., Scarlett Johansson, Sebastian Stan
+26. Captain America: Civil War (2016)  
+    **Starring:** Chris Evans, Robert Downey Jr., Scarlett Johansson, Sebastian Stan  
     **Directed By:** Anthony Russo, Joe Russo
 
-27. Black Widow (2021)
-    **Starring:** Scarlett Johansson, Florence Pugh, David Harbour, Rachel Weisz
+27. Black Widow (2021)  
+    **Starring:** Scarlett Johansson, Florence Pugh, David Harbour, Rachel Weisz  
     **Directed By:** Cate Shortland
 
-28. Black Panther (2018)
-    **Starring:** Chadwick Boseman, Michael B. Jordan, Lupita Nyong'o, Danai Gurira
+28. Black Panther (2018)  
+    **Starring:** Chadwick Boseman, Michael B. Jordan, Lupita Nyong'o, Danai Gurira  
     **Directed By:** Ryan Coogler
 
-29. Spider-Man: Homecoming (2017)
-    **Starring:** Tom Holland, Michael Keaton, Robert Downey Jr., Marisa Tomei
+29. Spider-Man: Homecoming (2017)  
+    **Starring:** Tom Holland, Michael Keaton, Robert Downey Jr., Marisa Tomei  
     **Directed By:** Jon Watts
 
-30. Marvel's The Punisher: Season 1
+30. Marvel's The Punisher: Season 1  
     **Starring:** Jon Bernthal, Ebon Moss-Bachrach, Deborah Ann Woll, Ben Barnes
 
-31. Doctor Strange (2016)
-    **Starring:** Benedict Cumberbatch, Chiwetel Ejiofor, Rachel McAdams, Benedict Wong
+31. Doctor Strange (2016)  
+    **Starring:** Benedict Cumberbatch, Chiwetel Ejiofor, Rachel McAdams, Benedict Wong  
     **Directed By:** Scott Derrickson
 
-32. Marvel's Jessica Jones: Season 2
+32. Marvel's Jessica Jones: Season 2  
     **Starring:** Krysten Ritter, Rachael Taylor, Eka Darville, Carrie-Anne Moss
 
-33. Marvel's Luke Cage: Season 2
+33. Marvel's Luke Cage: Season 2  
     **Starring:** Mike Colter, Simone Missick, Rosario Dawson, Alfre Woodard
 
-34. Marvel's Iron Fist: Season 2
+34. Marvel's Iron Fist: Season 2  
     **Starring:** Finn Jones, David Wenham, Rosario Dawson, Jessica Henwick
 
-35. Marvel's Daredevil: Season 3
+35. Marvel's Daredevil: Season 3  
     **Starring:** Charlie Cox, Elodie Yung, Deborah Ann Woll, Elden Henson
 
-36. Thor: Ragnarok (2017)
-    **Starring:** Chris Hemsworth, Tom Hiddleston, Cate Blanchett, Idris Elba
+36. Thor: Ragnarok (2017)  
+    **Starring:** Chris Hemsworth, Tom Hiddleston, Cate Blanchett, Idris Elba  
     **Directed By:** Taika Waititi
 
-37. Marvel's The Punisher: Season 2
+37. Marvel's The Punisher: Season 2  
     **Starring:** Jon Bernthal, Ben Barnes, Amber Rose Revah, Jason R. Moore
 
-38. Marvel's Jessica Jones: Season 3
+38. Marvel's Jessica Jones: Season 3  
     **Starring:** Krysten Ritter, Rachael Taylor, Eka Darville, Carrie-Anne Moss
 
 39. Ant-Man and The Wasp (2018)
