@@ -55,11 +55,11 @@
 
 ### Phase Six (2025-2027)
 
-37. The Fantastic Four: First Steps (July 25, 2025) https://google.com/search?q=chris+evans
+37. The Fantastic Four: First Steps (July 25, 2025)
 38. Avengers: Doomsday (December 18, 2026)
 39. Avengers: Secret Wars (December 17, 2027)
 
-## Marvel Cinematic Universe movies and shows in CHronological Order
+## Marvel Cinematic Universe movies and shows in Chronological Order
 
 1. Captain America: The First Avenger (July 22, 2011)  
    **Starring:** Chris Evans, Hayley Atwell, Sebastian Stan, Tommy Lee Jones  
@@ -315,3 +315,59 @@
 71. Thunderbolts\* (2025)  
     **Starring:** Florence Pugh, Sebastian Stan, David Harbour, Wyatt Russell  
     **Directed By:** Jake Schreier
+
+## Marvel Cinematic Universe upcoming movies and shows
+
+1. Eyes of Wakanda (animated series)
+   **Premiere Date:** August 6, 2025
+
+2. Marvel Zombies (animated series)
+   **Premiere Date:** October 2025
+
+3. Wonder Man (series)
+   **Premiere Date:** December 2025
+
+4. Spider-Man: Brand New Day
+   Release Date: July 31, 2026
+
+5. Avengers: Doomsday (2026)
+   **Premiere Date:** December 18, 2026
+
+6. The Punisher Special
+   Release Date: 2026
+
+7. Daredevil: Born Again Season 2
+   Release Date: 2026
+
+8. Vision (series)
+   **Premiere Date:** 2026
+
+9. Avengers: Secret Wars (2027)
+   **Premiere Date:** December 17, 2027
+
+10. Armor Wars
+    **Premiere Date:** TBA
+
+11. Blade (2025)
+    **Premiere Date:** TBD
+
+12. Shang-Chi 2
+    **Premiere Date:** TBA
+
+13. Black Panther 3
+    **Premiere Date:** TBA
+
+14. The X-Men
+    **Premiere Date:** TBA
+
+15. Ryan Coogler’s Wakanda-Set Television Series
+    **Premiere Date:** TBA
+
+16. Untitled Okoye Series
+    **Premiere Date:** TBA
+
+17. Untitled Scarlett Johansson Production
+    **Premiere Date:** TBA
+
+18. Nova
+    **Premiere Date:** TBA
