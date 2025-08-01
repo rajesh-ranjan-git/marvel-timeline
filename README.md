@@ -500,53 +500,53 @@
 
 ## Marvel Cinematic Universe upcoming movies and shows
 
-1. [Marvel Zombies](https://google.com/search?q=marvel+zombies+animated+series) (animated series)  
+1. [Marvel Zombies](https://google.com/search?q=marvel+zombies+animated+series+upcoming+mcu) (animated series)  
    **Premiere Date:** October 2025
 
-2. [Wonder Man](https://google.com/search?q=wonder+man+series) (series)  
+2. [Wonder Man](https://google.com/search?q=wonder+man+series+upcoming+mcu) (series)  
    **Premiere Date:** December 2025
 
-3. [Spider-Man: Brand New Day](https://google.com/search?q=spider+man+brand+new+day)  
+3. [Spider-Man: Brand New Day](https://google.com/search?q=spider+man+brand+new+day+upcoming+mcu)  
    **Premiere Date:** July 31, 2026
 
-4. [Avengers: Doomsday](https://google.com/search?q=avengers+doomsday+2026) (2026)  
+4. [Avengers: Doomsday](https://google.com/search?q=avengers+doomsday+2026+upcoming+mcu) (2026)  
    **Premiere Date:** December 18, 2026
 
-5. [The Punisher Special](https://google.com/search?q=the+punisher+special)  
+5. [The Punisher Special](https://google.com/search?q=the+punisher+special+upcoming+mcu)  
    **Premiere Date:** 2026
 
-6. [Daredevil: Born Again Season 2](https://google.com/search?q=daredevil+born+again+season+2)  
+6. [Daredevil: Born Again Season 2](https://google.com/search?q=daredevil+born+again+season+2+upcoming+mcu)  
    **Premiere Date:** 2026
 
-7. [Vision Quest](https://google.com/search?q=vision+quest+series) (series)  
+7. [Vision Quest](https://google.com/search?q=vision+quest+series+upcoming+mcu) (series)  
    **Premiere Date:** 2026
 
-8. [Avengers: Secret Wars](https://google.com/search?q=avengers+secret+wars+2027) (2027)  
+8. [Avengers: Secret Wars](https://google.com/search?q=avengers+secret+wars+2027+upcoming+mcu) (2027)  
    **Premiere Date:** December 17, 2027
 
-9. [Armor Wars](https://google.com/search?q=armor+wars)  
+9. [Armor Wars](https://google.com/search?q=armor+wars+upcoming+mcu)  
    **Premiere Date:** TBA
 
-10. [Blade](https://google.com/search?q=blade+2025) (2025)  
+10. [Blade](https://google.com/search?q=blade+2025+upcoming+mcu) (2025)  
     **Premiere Date:** TBD
 
-11. [Shang-Chi 2](https://google.com/search?q=shang+chi+2)  
+11. [Shang-Chi 2](https://google.com/search?q=shang+chi+2+upcoming+mcu)  
     **Premiere Date:** TBA
 
-12. [Black Panther 3](https://google.com/search?q=black+panther+3)  
+12. [Black Panther 3](https://google.com/search?q=black+panther+3+upcoming+mcu)  
     **Premiere Date:** TBA
 
-13. [The X-Men](https://google.com/search?q=the+x+men)  
+13. [The X-Men](https://google.com/search?q=the+x+men+upcoming+mcu)  
     **Premiere Date:** TBA
 
-14. [Ryan Coogler’s Wakanda-Set Television Series](https://google.com/search?q=ryan+coogler+s+wakanda+set+television+series)  
+14. [Ryan Coogler’s Wakanda-Set Television Series](https://google.com/search?q=ryan+coogler+s+wakanda+set+television+series+upcoming+mcu)  
     **Premiere Date:** TBA
 
-15. [Untitled Okoye Series](https://google.com/search?q=untitled+okoye+series)  
+15. [Untitled Okoye Series](https://google.com/search?q=untitled+okoye+series+upcoming+mcu)  
     **Premiere Date:** TBA
 
-16. [Untitled Scarlett Johansson Production](https://google.com/search?q=untitled+scarlett+johansson+production)  
+16. [Untitled Scarlett Johansson Production](https://google.com/search?q=untitled+scarlett+johansson+production+upcmoing+mcu)  
     **Premiere Date:** TBA
 
-17. [Nova](https://google.com/search?q=nova)  
+17. [Nova](https://google.com/search?q=nova+upcoming+mcu)  
     **Premiere Date:** TBA
