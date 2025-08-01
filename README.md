@@ -270,48 +270,48 @@
     **Starring:** Gael García Bernal, Laura Donnelly, Harriet Sansom Harris  
     **Directed By:** Michael Giacchino
 
-59. The Guardians of the Galaxy Holiday Special (2022)
-    **Starring:** Chris Pratt, Dave Bautista, Karen Gillan, Zoe Saldaña
+59. The Guardians of the Galaxy Holiday Special (2022)  
+    **Starring:** Chris Pratt, Dave Bautista, Karen Gillan, Zoe Saldaña  
     **Directed By:** James Gunn
 
-60. Ant-Man and The Wasp: Quantumania (2023)
-    **Starring:** Paul Rudd, Evangeline Lilly, Jonathan Majors, Bill Murray
+60. Ant-Man and The Wasp: Quantumania (2023)  
+    **Starring:** Paul Rudd, Evangeline Lilly, Jonathan Majors, Bill Murray  
     **Directed By:** Peyton Reed
 
-61. Guardians of the Galaxy Vol. 3 (2023)
-    **Starring:** Chris Pratt, Zoe Saldaña, Dave Bautista, Karen Gillan
+61. Guardians of the Galaxy Vol. 3 (2023)  
+    **Starring:** Chris Pratt, Zoe Saldaña, Dave Bautista, Karen Gillan  
     **Directed By:** James Gunn
 
-62. Secret Invasion
+62. Secret Invasion  
     **Starring:** Samuel L. Jackson, Ben Mendelsohn, Olivia Colman, Emilia Clarke
 
-63. The Marvels (2023)
-    **Starring:** Brie Larson, Teyonah Parris, Iman Vellani, Samuel L. Jackson
+63. The Marvels (2023)  
+    **Starring:** Brie Larson, Teyonah Parris, Iman Vellani, Samuel L. Jackson  
     **Directed By:** Nia DaCosta
 
-64. Loki: Season 2
+64. Loki: Season 2  
     **Starring:** Tom Hiddleston, Sophia Di Martino, Owen Wilson, Gugu Mbatha-Raw
 
-65. What If...?: Season 2
+65. What If...?: Season 2  
     **Starring:** Jeffrey Wright, Devery Jacobs, Cate Blanchett, Jon Favreau
 
-66. Deadpool & Wolverine (2024)
-    **Starring:** Ryan Reynolds, Hugh Jackman, Emma Corrin, Morena Baccarin
+66. Deadpool & Wolverine (2024)  
+    **Starring:** Ryan Reynolds, Hugh Jackman, Emma Corrin, Morena Baccarin  
     **Directed By:** Shawn Levy
 
-67. Agatha All Along: Season 1
+67. Agatha All Along: Season 1  
     **Starring:** Kathryn Hahn, Joe Locke, Sasheer Zamata, Aubrey Plaza
 
-68. What If...?: Season 3
+68. What If...?: Season 3  
     **Starring:** Jeffrey Wright, Chadwick Boseman, Hayley Atwell, Dominic Cooper
 
-69. Captain America: Brave New World (2025)
-    **Starring:** Anthony Mackie, Harrison Ford, Tim Blake Nelson, Danny Ramirez
+69. Captain America: Brave New World (2025)  
+    **Starring:** Anthony Mackie, Harrison Ford, Tim Blake Nelson, Danny Ramirez  
     **Directed By:** Julius Onah
 
-70. Daredevil: Born Again: Season 1
+70. Daredevil: Born Again: Season 1  
     **Starring:** Margarita Levieva, Genneya Walton, Charlie Cox, Wilson Bethel
 
-71. Thunderbolts\* (2025)
-    **Starring:** Florence Pugh, Sebastian Stan, David Harbour, Wyatt Russell
+71. Thunderbolts\* (2025)  
+    **Starring:** Florence Pugh, Sebastian Stan, David Harbour, Wyatt Russell  
     **Directed By:** Jake Schreier
