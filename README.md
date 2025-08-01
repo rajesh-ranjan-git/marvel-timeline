@@ -199,74 +199,75 @@
 38. Marvel's Jessica Jones: Season 3  
     **Starring:** Krysten Ritter, Rachael Taylor, Eka Darville, Carrie-Anne Moss
 
-39. Ant-Man and The Wasp (2018)
-    **Starring:** Paul Rudd, Evangeline Lilly, Michael Douglas, Michael Peña
+39. Ant-Man and The Wasp (2018)  
+    **Starring:** Paul Rudd, Evangeline Lilly, Michael Douglas, Michael Peña  
     **Directed By:** Peyton Reed
 
-40. Avengers: Infinity War (2018)
-    **Starring:** Robert Downey Jr., Chris Hemsworth, Josh Brolin, Chadwick Boseman
+40. Avengers: Infinity War (2018)  
+    **Starring:** Robert Downey Jr., Chris Hemsworth, Josh Brolin, Chadwick Boseman  
     **Directed By:** Anthony Russo, Joe Russo
 
-41. Avengers: Endgame (2019)
-    **Starring:** Robert Downey Jr., Chris Evans, Mark Ruffalo, Chris Hemsworth
+41. Avengers: Endgame (2019)  
+    **Starring:** Robert Downey Jr., Chris Evans, Mark Ruffalo, Chris Hemsworth  
     **Directed By:** Anthony Russo, Joe Russo
 
-42. Loki: Season 1
+42. Loki: Season 1  
     **Starring:** Tom Hiddleston, Sophia Di Martino, Owen Wilson, Gugu Mbatha-Raw
 
-43. Spider-Man: Far From Home (2019)
-    **Starring:** Tom Holland, Samuel L. Jackson, Jake Gyllenhaal, Marisa Tomei
+43. Spider-Man: Far From Home (2019)  
+    **Starring:** Tom Holland, Samuel L. Jackson, Jake Gyllenhaal, Marisa Tomei  
     **Directed By:** Jon Watts
 
-44. Spider-Man: No Way Home (2021)
-    **Starring:** Tom Holland, Zendaya, Benedict Cumberbatch, Jacob Batalon
+44. Spider-Man: No Way Home (2021)  
+    **Starring:** Tom Holland, Zendaya, Benedict Cumberbatch, Jacob Batalon  
     **Directed By:** Jon Watts
 
-45. What If...?: Season 1
+45. What If...?: Season 1  
     **Starring:** Jeffrey Wright, Chadwick Boseman, Samuel L. Jackson, Chris Hemsworth
 
-46. WandaVision
+46. WandaVision  
     **Starring:** Elizabeth Olsen, Paul Bettany, Teyonah Parris, Kathryn Hahn
 
-47. Shang-Chi and the Legend of the Ten Rings (2021)
-    **Starring:** Simu Liu, Awkwafina, Meng'er Zhang, Fala Chen
+47. Shang-Chi and the Legend of the Ten Rings (2021)  
+    **Starring:** Simu Liu, Awkwafina, Meng'er Zhang, Fala Chen  
     **Directed By:** Destin Daniel Cretton
 
-48. The Falcon and the Winter Soldier
+48. The Falcon and the Winter Soldier  
     **Starring:** Anthony Mackie, Sebastian Stan, Daniel Brühl, Emily VanCamp
 
-49. Eternals (2021)
-    **Starring:** Angelina Jolie, Salma Hayek, Kit Harington, Gemma Chan
+49. Eternals (2021)  
+    **Starring:** Angelina Jolie, Salma Hayek, Kit Harington, Gemma Chan  
     **Directed By:** Chloé Zhao
 
-50. Doctor Strange in the Multiverse of Madness (2022)
-    **Starring:** Benedict Cumberbatch, Elizabeth Olsen, Chiwetel Ejiofor, Rachel McAdams
+50. Doctor Strange in the Multiverse of Madness (2022)  
+    **Starring:** Benedict Cumberbatch, Elizabeth Olsen, Chiwetel Ejiofor, Rachel McAdams  
     **Directed By:** Sam Raimi
 
-51. Hawkeye
+51. Hawkeye  
     **Starring:** Jeremy Renner, Hailee Steinfeld, Vera Farmiga, Florence Pugh
 
-52. Moon Knight
+52. Moon Knight  
     **Starring:** Oscar Isaac, May Calamawy, Ethan Hawke, Gaspard Ulliel
 
-53. Black Panther: Wakanda Forever (2022)
-    **Starring:** Letitia Wright, Angela Bassett, Lupita Nyong'o, Tenoch Huerta
+53. Black Panther: Wakanda Forever (2022)  
+    **Starring:** Letitia Wright, Angela Bassett, Lupita Nyong'o, Tenoch Huerta  
     **Directed By:** Ryan Coogler
 
-54. Echo
+54. Echo  
     **Starring:** Alaqua Cox, Chaske Spencer, Graham Greene, Tantoo Cardinal
 
-55. She-Hulk: Attorney at Law
+55. She-Hulk: Attorney at Law  
     **Starring:** Tatiana Maslany, Mark Ruffalo, Tim Roth, Benedict Wong
 
-56. Ms. Marvel
+56. Ms. Marvel  
     **Starring:** Iman Vellani, Aramis Knight, Saagar Shaikh, Rish Shah
 
-57. Thor: Love and Thunder (2022)
+57. Thor: Love and Thunder (2022)  
+    **Starring:** Chris Hemsworth, Natalie Portman, Christian Bale, Tessa Thompson  
     **Directed By:** Taika Waititi
 
-58. Werewolf by Night (2022)
-    **Starring:** Gael García Bernal, Laura Donnelly, Harriet Sansom Harris
+58. Werewolf by Night (2022)  
+    **Starring:** Gael García Bernal, Laura Donnelly, Harriet Sansom Harris  
     **Directed By:** Michael Giacchino
 
 59. The Guardians of the Galaxy Holiday Special (2022)
