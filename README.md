@@ -62,67 +62,67 @@
 ## Marvel Cinematic Universe movies and shows in chronological order
 
 1. Captain America: The First Avenger (July 22, 2011)  
-   **Starring:** [Chris Evans](https://google.com/search?q=Chris+Evans), [Hayley Atwell](https://google.com/search?q=Hayley+Atwell), [Sebastian Stan](https://google.com/search?q=Sebastian+Stan), [Tommy Lee Jones](https://google.com/search?q=Tommy+Lee+Jones)
+   **Starring:** [Chris Evans](https://google.com/search?q=Chris+Evans), [Hayley Atwell](https://google.com/search?q=Hayley+Atwell), [Sebastian Stan](https://google.com/search?q=Sebastian+Stan), [Tommy Lee Jones](https://google.com/search?q=Tommy+Lee+Jones)  
    **Directed By:** [Joe Johnston](https://google.com/search?q=Joe+Johnston)
 
 2. Marvel One-Shot: Agent Carter (September 24, 2013)  
-   **Starring:** [Hayley Atwell](https://google.com/search?q=Hayley+Atwell), [Bradley Whitford](https://google.com/search?q=Bradley+Whitford), [Tim Trobec](https://google.com/search?q=Tim+Trobec), [Shane Black](https://google.com/search?q=Shane+Black)
+   **Starring:** [Hayley Atwell](https://google.com/search?q=Hayley+Atwell), [Bradley Whitford](https://google.com/search?q=Bradley+Whitford), [Tim Trobec](https://google.com/search?q=Tim+Trobec), [Shane Black](https://google.com/search?q=Shane+Black)  
    **Directed By:** [Louis D'Esposito](https://google.com/search?q=Louis+D'Esposito)
 
 3. Captain Marvel (March 8, 2019)  
-   **Starring:** [Brie Larson](https://google.com/search?q=Brie+Larson), [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson), [Ben Mendelsohn](https://google.com/search?q=Ben+Mendelsohn), [Djimon Hounsou](https://google.com/search?q=Djimon+Hounsou)
+   **Starring:** [Brie Larson](https://google.com/search?q=Brie+Larson), [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson), [Ben Mendelsohn](https://google.com/search?q=Ben+Mendelsohn), [Djimon Hounsou](https://google.com/search?q=Djimon+Hounsou)  
    **Directed By:** [Anna Boden, Ryan Fleck](https://google.com/search?q=Anna+Boden,+Ryan+Fleck)
 
 4. Iron Man (May 2, 2008)  
-   **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Terrence Howard](https://google.com/search?q=Terrence+Howard), [Gwyneth Paltrow](https://google.com/search?q=Gwyneth+Paltrow), [Jeff Bridges](https://google.com/search?q=Jeff+Bridges)
+   **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Terrence Howard](https://google.com/search?q=Terrence+Howard), [Gwyneth Paltrow](https://google.com/search?q=Gwyneth+Paltrow), [Jeff Bridges](https://google.com/search?q=Jeff+Bridges)  
    **Directed By:** [Jon Favreau](https://google.com/search?q=Jon+Favreau)
 
 5. Iron Man 2 (May 7, 2010)  
-   **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Gwyneth Paltrow](https://google.com/search?q=Gwyneth+Paltrow), [Don Cheadle](https://google.com/search?q=Don+Cheadle), [Scarlett Johansson](https://google.com/search?q=Scarlett+Johansson)
+   **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Gwyneth Paltrow](https://google.com/search?q=Gwyneth+Paltrow), [Don Cheadle](https://google.com/search?q=Don+Cheadle), [Scarlett Johansson](https://google.com/search?q=Scarlett+Johansson)  
    **Directed By:** [Jon Favreau](https://google.com/search?q=Jon+Favreau)
 
 6. Marvel One-Shot: A Funny Thing Happened on the Way to Thor's Hammer (October 25, 2011)  
-   **Starring:** [Clark Gregg](https://google.com/search?q=Clark+Gregg), [Jessica Manuel](https://google.com/search?q=Jessica+Manuel), [Jeff Prewett](https://google.com/search?q=Jeff+Prewett), [Zach Hudson](https://google.com/search?q=Zach+Hudson)
+   **Starring:** [Clark Gregg](https://google.com/search?q=Clark+Gregg), [Jessica Manuel](https://google.com/search?q=Jessica+Manuel), [Jeff Prewett](https://google.com/search?q=Jeff+Prewett), [Zach Hudson](https://google.com/search?q=Zach+Hudson)  
    **Directed By:** [Leythum](https://google.com/search?q=Leythum)
 
 7. The Incredible Hulk (June 13, 2008)  
-   **Starring:** [Edward Norton](https://google.com/search?q=Edward+Norton), [Liv Tyler](https://google.com/search?q=Liv+Tyler), [Tim Roth](https://google.com/search?q=Tim+Roth), [William Hurt](https://google.com/search?q=William+Hurt)
+   **Starring:** [Edward Norton](https://google.com/search?q=Edward+Norton), [Liv Tyler](https://google.com/search?q=Liv+Tyler), [Tim Roth](https://google.com/search?q=Tim+Roth), [William Hurt](https://google.com/search?q=William+Hurt)  
    **Directed By:** [Louis Leterrier](https://google.com/search?q=Louis+Leterrier)
 
 8. Thor (May 6, 2011)  
-   **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Natalie Portman](https://google.com/search?q=Natalie+Portman), [Anthony Hopkins](https://google.com/search?q=Anthony+Hopkins), [Tom Hiddleston](https://google.com/search?q=Tom+Hiddleston)
+   **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Natalie Portman](https://google.com/search?q=Natalie+Portman), [Anthony Hopkins](https://google.com/search?q=Anthony+Hopkins), [Tom Hiddleston](https://google.com/search?q=Tom+Hiddleston)  
    **Directed By:** [Kenneth Branagh](https://google.com/search?q=Kenneth+Branagh)
 
 9. Marvel One-Shot: The Consultant (September 13, 2011)  
-   **Starring:** [Clark Gregg](https://google.com/search?q=Clark+Gregg), [Maximiliano Hernandez](https://google.com/search?q=Maximiliano+Hernandez), [Deborah Knox](https://google.com/search?q=Deborah+Knox), [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.)
+   **Starring:** [Clark Gregg](https://google.com/search?q=Clark+Gregg), [Maximiliano Hernandez](https://google.com/search?q=Maximiliano+Hernandez), [Deborah Knox](https://google.com/search?q=Deborah+Knox), [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.)  
    **Directed By:** [Leythum](https://google.com/search?q=Leythum)
 
 10. Marvel's the Avengers (April 27, 2012)  
-    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Chris Evans](https://google.com/search?q=Chris+Evans), [Mark Ruffalo](https://google.com/search?q=Mark+Ruffalo), [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth)
+    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Chris Evans](https://google.com/search?q=Chris+Evans), [Mark Ruffalo](https://google.com/search?q=Mark+Ruffalo), [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth)  
     **Directed By:** [Joss Whedon](https://google.com/search?q=Joss+Whedon)
 
 11. Item 47 (September 25, 2012)  
-    **Starring:** [Lizzy Caplan](https://google.com/search?q=Lizzy+Caplan), [Jesse Bradford](https://google.com/search?q=Jesse+Bradford), [Maximiliano Hernandez](https://google.com/search?q=Maximiliano+Hernandez), [Titus Welliver](https://google.com/search?q=Titus+Welliver)
+    **Starring:** [Lizzy Caplan](https://google.com/search?q=Lizzy+Caplan), [Jesse Bradford](https://google.com/search?q=Jesse+Bradford), [Maximiliano Hernandez](https://google.com/search?q=Maximiliano+Hernandez), [Titus Welliver](https://google.com/search?q=Titus+Welliver)  
     **Directed By:** [Louis D'Esposito](https://google.com/search?q=Louis+D'Esposito)
 
 12. Thor: The Dark World (November 8, 2013)  
-    **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Natalie Portman](https://google.com/search?q=Natalie+Portman), [Tom Hiddleston](https://google.com/search?q=Tom+Hiddleston), [Stellan Skarsgård](https://google.com/search?q=Stellan+Skarsgård)
+    **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Natalie Portman](https://google.com/search?q=Natalie+Portman), [Tom Hiddleston](https://google.com/search?q=Tom+Hiddleston), [Stellan Skarsgård](https://google.com/search?q=Stellan+Skarsgård)  
     **Directed By:** [Alan Taylor](https://google.com/search?q=Alan+Taylor)
 
 13. Iron Man 3 (May 3, 2013)  
-    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Gwyneth Paltrow](https://google.com/search?q=Gwyneth+Paltrow), [Don Cheadle](https://google.com/search?q=Don+Cheadle), [Guy Pearce](https://google.com/search?q=Guy+Pearce)
+    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Gwyneth Paltrow](https://google.com/search?q=Gwyneth+Paltrow), [Don Cheadle](https://google.com/search?q=Don+Cheadle), [Guy Pearce](https://google.com/search?q=Guy+Pearce)  
     **Directed By:** [Shane Black](https://google.com/search?q=Shane+Black)
 
 14. Captain America: The Winter Soldier (April 4, 2014)  
-    **Starring:** [Chris Evans](https://google.com/search?q=Chris+Evans), [Scarlett Johansson](https://google.com/search?q=Scarlett+Johansson), [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson), [Sebastian Stan](https://google.com/search?q=Sebastian+Stan)
+    **Starring:** [Chris Evans](https://google.com/search?q=Chris+Evans), [Scarlett Johansson](https://google.com/search?q=Scarlett+Johansson), [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson), [Sebastian Stan](https://google.com/search?q=Sebastian+Stan)  
     **Directed By:** [Anthony Russo, Joe Russo](https://google.com/search?q=Anthony+Russo,+Joe+Russo)
 
 15. Guardians of the Galaxy (August 1, 2014)  
-    **Starring:** [Chris Pratt](https://google.com/search?q=Chris+Pratt), [Zoe Saldaña](https://google.com/search?q=Zoe+Saldaña), [Dave Bautista](https://google.com/search?q=Dave+Bautista), [Vin Diesel](https://google.com/search?q=Vin+Diesel)
+    **Starring:** [Chris Pratt](https://google.com/search?q=Chris+Pratt), [Zoe Saldaña](https://google.com/search?q=Zoe+Saldaña), [Dave Bautista](https://google.com/search?q=Dave+Bautista), [Vin Diesel](https://google.com/search?q=Vin+Diesel)  
     **Directed By:** [James Gunn](https://google.com/search?q=James+Gunn)
 
 16. Guardians of the Galaxy Vol. 2 (May 5, 2017)  
-    **Starring:** [Chris Pratt](https://google.com/search?q=Chris+Pratt), [Zoe Saldaña](https://google.com/search?q=Zoe+Saldaña), [Bradley Cooper](https://google.com/search?q=Bradley+Cooper), [Dave Bautista](https://google.com/search?q=Dave+Bautista)
+    **Starring:** [Chris Pratt](https://google.com/search?q=Chris+Pratt), [Zoe Saldaña](https://google.com/search?q=Zoe+Saldaña), [Bradley Cooper](https://google.com/search?q=Bradley+Cooper), [Dave Bautista](https://google.com/search?q=Dave+Bautista)  
     **Directed By:** [James Gunn](https://google.com/search?q=James+Gunn)
 
 17. I Am Groot (August 10, 2022)  
@@ -135,11 +135,11 @@
     **Starring:** [Krysten Ritter](https://google.com/search?q=Krysten+Ritter), [Rachael Taylor](https://google.com/search?q=Rachael+Taylor), [Eka Darville](https://google.com/search?q=Eka+Darville), [Carrie-Anne Moss](https://google.com/search?q=Carrie-Anne+Moss)
 
 20. Avengers: Age of Ultron (May 1, 2015)  
-    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Mark Ruffalo](https://google.com/search?q=Mark+Ruffalo), [Chris Evans](https://google.com/search?q=Chris+Evans)
+    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Mark Ruffalo](https://google.com/search?q=Mark+Ruffalo), [Chris Evans](https://google.com/search?q=Chris+Evans)  
     **Directed By:** [Joss Whedon](https://google.com/search?q=Joss+Whedon)
 
 21. Ant-Man (July 17, 2015)  
-    **Starring:** [Paul Rudd](https://google.com/search?q=Paul+Rudd), [Michael Douglas](https://google.com/search?q=Michael+Douglas), [Evangeline Lilly](https://google.com/search?q=Evangeline+Lilly), [Corey Stoll](https://google.com/search?q=Corey+Stoll)
+    **Starring:** [Paul Rudd](https://google.com/search?q=Paul+Rudd), [Michael Douglas](https://google.com/search?q=Michael+Douglas), [Evangeline Lilly](https://google.com/search?q=Evangeline+Lilly), [Corey Stoll](https://google.com/search?q=Corey+Stoll)  
     **Directed By:** [Peyton Reed](https://google.com/search?q=Peyton+Reed)
 
 22. Marvel's Daredevil: Season 2 (April 10, 2015)  
@@ -155,26 +155,26 @@
     **Starring:** [Charlie Cox](https://google.com/search?q=Charlie+Cox), [Krysten Ritter](https://google.com/search?q=Krysten+Ritter), [Mike Colter](https://google.com/search?q=Mike+Colter), [Finn Jones](https://google.com/search?q=Finn+Jones)
 
 26. Captain America: Civil War (May 6, 2016)  
-    **Starring:** [Chris Evans](https://google.com/search?q=Chris+Evans), [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Scarlett Johansson](https://google.com/search?q=Scarlett+Johansson), [Sebastian Stan](https://google.com/search?q=Sebastian+Stan)
+    **Starring:** [Chris Evans](https://google.com/search?q=Chris+Evans), [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Scarlett Johansson](https://google.com/search?q=Scarlett+Johansson), [Sebastian Stan](https://google.com/search?q=Sebastian+Stan)  
     **Directed By:** [Anthony Russo, Joe Russo](https://google.com/search?q=Anthony+Russo,+Joe+Russo)
 
 27. Black Widow (July 9, 2021)  
-    **Starring:** [Scarlett Johansson](https://google.com/search?q=Scarlett+Johansson), [Florence Pugh](https://google.com/search?q=Florence+Pugh), [David Harbour](https://google.com/search?q=David+Harbour), [Rachel Weisz](https://google.com/search?q=Rachel+Weisz)
+    **Starring:** [Scarlett Johansson](https://google.com/search?q=Scarlett+Johansson), [Florence Pugh](https://google.com/search?q=Florence+Pugh), [David Harbour](https://google.com/search?q=David+Harbour), [Rachel Weisz](https://google.com/search?q=Rachel+Weisz)  
     **Directed By:** [Cate Shortland](https://google.com/search?q=Cate+Shortland)
 
 28. Black Panther (February 16, 2018)  
-    **Starring:** [Chadwick Boseman](https://google.com/search?q=Chadwick+Boseman), [Michael B. Jordan](https://google.com/search?q=Michael+B.+Jordan), [Lupita Nyong'o](https://google.com/search?q=Lupita+Nyong'o), [Danai Gurira](https://google.com/search?q=Danai+Gurira)
+    **Starring:** [Chadwick Boseman](https://google.com/search?q=Chadwick+Boseman), [Michael B. Jordan](https://google.com/search?q=Michael+B.+Jordan), [Lupita Nyong'o](https://google.com/search?q=Lupita+Nyong'o), [Danai Gurira](https://google.com/search?q=Danai+Gurira)  
     **Directed By:** [Ryan Coogler](https://google.com/search?q=Ryan+Coogler)
 
 29. Spider-Man: Homecoming (July 7, 2017)  
-    **Starring:** [Tom Holland](https://google.com/search?q=Tom+Holland), [Michael Keaton](https://google.com/search?q=Michael+Keaton), [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Marisa Tomei](https://google.com/search?q=Marisa+Tomei)
+    **Starring:** [Tom Holland](https://google.com/search?q=Tom+Holland), [Michael Keaton](https://google.com/search?q=Michael+Keaton), [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Marisa Tomei](https://google.com/search?q=Marisa+Tomei)  
     **Directed By:** [Jon Watts](https://google.com/search?q=Jon+Watts)
 
 30. Marvel's The Punisher: Season 1 (November 17, 2017)  
     **Starring:** [Jon Bernthal](https://google.com/search?q=Jon+Bernthal), [Ebon Moss-Bachrach](https://google.com/search?q=Ebon+Moss-Bachrach), [Deborah Ann Woll](https://google.com/search?q=Deborah+Ann+Woll), [Ben Barnes](https://google.com/search?q=Ben+Barnes)
 
 31. Doctor Strange (November 4, 2016)  
-    **Starring:** [Benedict Cumberbatch](https://google.com/search?q=Benedict+Cumberbatch), [Chiwetel Ejiofor](https://google.com/search?q=Chiwetel+Ejiofor), [Rachel McAdams](https://google.com/search?q=Rachel+McAdams), [Benedict Wong](https://google.com/search?q=Benedict+Wong)
+    **Starring:** [Benedict Cumberbatch](https://google.com/search?q=Benedict+Cumberbatch), [Chiwetel Ejiofor](https://google.com/search?q=Chiwetel+Ejiofor), [Rachel McAdams](https://google.com/search?q=Rachel+McAdams), [Benedict Wong](https://google.com/search?q=Benedict+Wong)  
     **Directed By:** [Scott Derrickson](https://google.com/search?q=Scott+Derrickson)
 
 32. Marvel's Jessica Jones: Season 2 (November 20, 2015)  
@@ -190,7 +190,7 @@
     **Starring:** [Charlie Cox](https://google.com/search?q=Charlie+Cox), [Elodie Yung](https://google.com/search?q=Elodie+Yung), [Deborah Ann Woll](https://google.com/search?q=Deborah+Ann+Woll), [Elden Henson](https://google.com/search?q=Elden+Henson)
 
 36. Thor: Ragnarok (November 3, 2017)  
-    **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Tom Hiddleston](https://google.com/search?q=Tom+Hiddleston), [Cate Blanchett](https://google.com/search?q=Cate+Blanchett), [Idris Elba](https://google.com/search?q=Idris+Elba)
+    **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Tom Hiddleston](https://google.com/search?q=Tom+Hiddleston), [Cate Blanchett](https://google.com/search?q=Cate+Blanchett), [Idris Elba](https://google.com/search?q=Idris+Elba)  
     **Directed By:** [Taika Waititi](https://google.com/search?q=Taika+Waititi)
 
 37. Marvel's The Punisher: Season 2 (November 17, 2017)  
@@ -200,26 +200,26 @@
     **Starring:** [Krysten Ritter](https://google.com/search?q=Krysten+Ritter), [Rachael Taylor](https://google.com/search?q=Rachael+Taylor), [Eka Darville](https://google.com/search?q=Eka+Darville), [Carrie-Anne Moss](https://google.com/search?q=Carrie-Anne+Moss)
 
 39. Ant-Man and The Wasp (July 6, 2018)  
-    **Starring:** [Paul Rudd](https://google.com/search?q=Paul+Rudd), [Evangeline Lilly](https://google.com/search?q=Evangeline+Lilly), [Michael Douglas](https://google.com/search?q=Michael+Douglas), [Michael Peña](https://google.com/search?q=Michael+Peña)
+    **Starring:** [Paul Rudd](https://google.com/search?q=Paul+Rudd), [Evangeline Lilly](https://google.com/search?q=Evangeline+Lilly), [Michael Douglas](https://google.com/search?q=Michael+Douglas), [Michael Peña](https://google.com/search?q=Michael+Peña)  
     **Directed By:** [Peyton Reed](https://google.com/search?q=Peyton+Reed)
 
 40. Avengers: Infinity War (April 27, 2018)  
-    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Josh Brolin](https://google.com/search?q=Josh+Brolin), [Chadwick Boseman](https://google.com/search?q=Chadwick+Boseman)
+    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Josh Brolin](https://google.com/search?q=Josh+Brolin), [Chadwick Boseman](https://google.com/search?q=Chadwick+Boseman)  
     **Directed By:** [Anthony Russo, Joe Russo](https://google.com/search?q=Anthony+Russo,+Joe+Russo)
 
 41. Avengers: Endgame (April 26, 2019)  
-    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Chris Evans](https://google.com/search?q=Chris+Evans), [Mark Ruffalo](https://google.com/search?q=Mark+Ruffalo), [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth)
+    **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Chris Evans](https://google.com/search?q=Chris+Evans), [Mark Ruffalo](https://google.com/search?q=Mark+Ruffalo), [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth)  
     **Directed By:** [Anthony Russo, Joe Russo](https://google.com/search?q=Anthony+Russo,+Joe+Russo)
 
 42. Loki: Season 1 (June 9, 2021)  
     **Starring:** [Tom Hiddleston](https://google.com/search?q=Tom+Hiddleston), [Sophia Di Martino](https://google.com/search?q=Sophia+Di+Martino), [Owen Wilson](https://google.com/search?q=Owen+Wilson), [Gugu Mbatha-Raw](https://google.com/search?q=Gugu+Mbatha-Raw)
 
 43. Spider-Man: Far From Home (July 2, 2019)  
-    **Starring:** [Tom Holland](https://google.com/search?q=Tom+Holland), [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson), [Jake Gyllenhaal](https://google.com/search?q=Jake+Gyllenhaal), [Marisa Tomei](https://google.com/search?q=Marisa+Tomei)
+    **Starring:** [Tom Holland](https://google.com/search?q=Tom+Holland), [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson), [Jake Gyllenhaal](https://google.com/search?q=Jake+Gyllenhaal), [Marisa Tomei](https://google.com/search?q=Marisa+Tomei)  
     **Directed By:** [Jon Watts](https://google.com/search?q=Jon+Watts)
 
 44. Spider-Man: No Way Home (December 17, 2021)  
-    **Starring:** [Tom Holland](https://google.com/search?q=Tom+Holland), [Zendaya](https://google.com/search?q=Zendaya), [Benedict Cumberbatch](https://google.com/search?q=Benedict+Cumberbatch), [Jacob Batalon](https://google.com/search?q=Jacob+Batalon)
+    **Starring:** [Tom Holland](https://google.com/search?q=Tom+Holland), [Zendaya](https://google.com/search?q=Zendaya), [Benedict Cumberbatch](https://google.com/search?q=Benedict+Cumberbatch), [Jacob Batalon](https://google.com/search?q=Jacob+Batalon)  
     **Directed By:** [Jon Watts](https://google.com/search?q=Jon+Watts)
 
 45. What If...?: Season 1 (August 11, 2021)  
@@ -229,18 +229,18 @@
     **Starring:** [Elizabeth Olsen](https://google.com/search?q=Elizabeth+Olsen), [Paul Bettany](https://google.com/search?q=Paul+Bettany), [Teyonah Parris](https://google.com/search?q=Teyonah+Parris), [Kathryn Hahn](https://google.com/search?q=Kathryn+Hahn)
 
 47. Shang-Chi and the Legend of the Ten Rings (September 2, 2021)  
-    **Starring:** [Simu Liu](https://google.com/search?q=Simu+Liu), [Awkwafina](https://google.com/search?q=Awkwafina), [Meng'er Zhang](https://google.com/search?q=Meng'er+Zhang), [Fala Chen](https://google.com/search?q=Fala+Chen)
+    **Starring:** [Simu Liu](https://google.com/search?q=Simu+Liu), [Awkwafina](https://google.com/search?q=Awkwafina), [Meng'er Zhang](https://google.com/search?q=Meng'er+Zhang), [Fala Chen](https://google.com/search?q=Fala+Chen)  
     **Directed By:** [Destin Daniel Cretton](https://google.com/search?q=Destin+Daniel+Cretton)
 
 48. The Falcon and the Winter Soldier (March 19, 2021)  
     **Starring:** [Anthony Mackie](https://google.com/search?q=Anthony+Mackie), [Sebastian Stan](https://google.com/search?q=Sebastian+Stan), [Daniel Brühl](https://google.com/search?q=Daniel+Brühl), [Emily VanCamp](https://google.com/search?q=Emily+VanCamp)
 
 49. Eternals (November 5, 2021)  
-    **Starring:** [Angelina Jolie](https://google.com/search?q=Angelina+Jolie), [Salma Hayek](https://google.com/search?q=Salma+Hayek), [Kit Harington](https://google.com/search?q=Kit+Harington), [Gemma Chan](https://google.com/search?q=Gemma+Chan)
+    **Starring:** [Angelina Jolie](https://google.com/search?q=Angelina+Jolie), [Salma Hayek](https://google.com/search?q=Salma+Hayek), [Kit Harington](https://google.com/search?q=Kit+Harington), [Gemma Chan](https://google.com/search?q=Gemma+Chan)  
     **Directed By:** [Chloé Zhao](https://google.com/search?q=Chloé+Zhao)
 
 50. Doctor Strange in the Multiverse of Madness (May 6, 2022)  
-    **Starring:** [Benedict Cumberbatch](https://google.com/search?q=Benedict+Cumberbatch), [Elizabeth Olsen](https://google.com/search?q=Elizabeth+Olsen), [Chiwetel Ejiofor](https://google.com/search?q=Chiwetel+Ejiofor), [Rachel McAdams](https://google.com/search?q=Rachel+McAdams)
+    **Starring:** [Benedict Cumberbatch](https://google.com/search?q=Benedict+Cumberbatch), [Elizabeth Olsen](https://google.com/search?q=Elizabeth+Olsen), [Chiwetel Ejiofor](https://google.com/search?q=Chiwetel+Ejiofor), [Rachel McAdams](https://google.com/search?q=Rachel+McAdams)  
     **Directed By:** [Sam Raimi](https://google.com/search?q=Sam+Raimi)
 
 51. Hawkeye (November 24, 2021)  
@@ -250,7 +250,7 @@
     **Starring:** [Oscar Isaac](https://google.com/search?q=Oscar+Isaac), [May Calamawy](https://google.com/search?q=May+Calamawy), [Ethan Hawke](https://google.com/search?q=Ethan+Hawke), [Gaspard Ulliel](https://google.com/search?q=Gaspard+Ulliel)
 
 53. Black Panther: Wakanda Forever (November 11, 2022)  
-    **Starring:** [Letitia Wright](https://google.com/search?q=Letitia+Wright), [Angela Bassett](https://google.com/search?q=Angela+Bassett), [Lupita Nyong'o](https://google.com/search?q=Lupita+Nyong'o), [Tenoch Huerta](https://google.com/search?q=Tenoch+Huerta)
+    **Starring:** [Letitia Wright](https://google.com/search?q=Letitia+Wright), [Angela Bassett](https://google.com/search?q=Angela+Bassett), [Lupita Nyong'o](https://google.com/search?q=Lupita+Nyong'o), [Tenoch Huerta](https://google.com/search?q=Tenoch+Huerta)  
     **Directed By:** [Ryan Coogler](https://google.com/search?q=Ryan+Coogler)
 
 54. Echo (January 9, 2024)  
@@ -263,30 +263,30 @@
     **Starring:** [Iman Vellani](https://google.com/search?q=Iman+Vellani), [Aramis Knight](https://google.com/search?q=Aramis+Knight), [Saagar Shaikh](https://google.com/search?q=Saagar+Shaikh), [Rish Shah](https://google.com/search?q=Rish+Shah)
 
 57. Thor: Love and Thunder (July 8, 2022)  
-    **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Natalie Portman](https://google.com/search?q=Natalie+Portman), [Christian Bale](https://google.com/search?q=Christian+Bale), [Tessa Thompson](https://google.com/search?q=Tessa+Thompson)
+    **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Natalie Portman](https://google.com/search?q=Natalie+Portman), [Christian Bale](https://google.com/search?q=Christian+Bale), [Tessa Thompson](https://google.com/search?q=Tessa+Thompson)  
     **Directed By:** [Taika Waititi](https://google.com/search?q=Taika+Waititi)
 
 58. Werewolf by Night (September 25, 2022)  
-    **Starring:** [Gael García Bernal](https://google.com/search?q=Gael+García+Bernal), [Laura Donnelly](https://google.com/search?q=Laura+Donnelly), [Harriet Sansom Harris](https://google.com/search?q=Harriet+Sansom+Harris)
+    **Starring:** [Gael García Bernal](https://google.com/search?q=Gael+García+Bernal), [Laura Donnelly](https://google.com/search?q=Laura+Donnelly), [Harriet Sansom Harris](https://google.com/search?q=Harriet+Sansom+Harris)  
     **Directed By:** [Michael Giacchino](https://google.com/search?q=Michael+Giacchino)
 
 59. The Guardians of the Galaxy Holiday Special (November 25, 2022)  
-    **Starring:** [Chris Pratt](https://google.com/search?q=Chris+Pratt), [Dave Bautista](https://google.com/search?q=Dave+Bautista), [Karen Gillan](https://google.com/search?q=Karen+Gillan), [Zoe Saldaña](https://google.com/search?q=Zoe+Saldaña)
+    **Starring:** [Chris Pratt](https://google.com/search?q=Chris+Pratt), [Dave Bautista](https://google.com/search?q=Dave+Bautista), [Karen Gillan](https://google.com/search?q=Karen+Gillan), [Zoe Saldaña](https://google.com/search?q=Zoe+Saldaña)  
     **Directed By:** [James Gunn](https://google.com/search?q=James+Gunn)
 
 60. Ant-Man and The Wasp: Quantumania (February 17, 2023)  
-    **Starring:** [Paul Rudd](https://google.com/search?q=Paul+Rudd), [Evangeline Lilly](https://google.com/search?q=Evangeline+Lilly), [Jonathan Majors](https://google.com/search?q=Jonathan+Majors), [Bill Murray](https://google.com/search?q=Bill+Murray)
+    **Starring:** [Paul Rudd](https://google.com/search?q=Paul+Rudd), [Evangeline Lilly](https://google.com/search?q=Evangeline+Lilly), [Jonathan Majors](https://google.com/search?q=Jonathan+Majors), [Bill Murray](https://google.com/search?q=Bill+Murray)  
     **Directed By:** [Peyton Reed](https://google.com/search?q=Peyton+Reed)
 
 61. Guardians of the Galaxy Vol. 3 (May 5, 2023)  
-    **Starring:** [Chris Pratt](https://google.com/search?q=Chris+Pratt), [Zoe Saldaña](https://google.com/search?q=Zoe+Saldaña), [Dave Bautista](https://google.com/search?q=Dave+Bautista), [Karen Gillan](https://google.com/search?q=Karen+Gillan)
+    **Starring:** [Chris Pratt](https://google.com/search?q=Chris+Pratt), [Zoe Saldaña](https://google.com/search?q=Zoe+Saldaña), [Dave Bautista](https://google.com/search?q=Dave+Bautista), [Karen Gillan](https://google.com/search?q=Karen+Gillan)  
     **Directed By:** [James Gunn](https://google.com/search?q=James+Gunn)
 
 62. Secret Invasion (June 21, 2023)  
     **Starring:** [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson), [Ben Mendelsohn](https://google.com/search?q=Ben+Mendelsohn), [Olivia Colman](https://google.com/search?q=Olivia+Colman), [Emilia Clarke](https://google.com/search?q=Emilia+Clarke)
 
 63. The Marvels (November 11, 2023)  
-    **Starring:** [Brie Larson](https://google.com/search?q=Brie+Larson), [Teyonah Parris](https://google.com/search?q=Teyonah+Parris), [Iman Vellani](https://google.com/search?q=Iman+Vellani), [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson)
+    **Starring:** [Brie Larson](https://google.com/search?q=Brie+Larson), [Teyonah Parris](https://google.com/search?q=Teyonah+Parris), [Iman Vellani](https://google.com/search?q=Iman+Vellani), [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson)  
     **Directed By:** [Nia DaCosta](https://google.com/search?q=Nia+DaCosta)
 
 64. Loki: Season 2 (June 9, 2021)  
@@ -296,7 +296,7 @@
     **Starring:** [Jeffrey Wright](https://google.com/search?q=Jeffrey+Wright), [Devery Jacobs](https://google.com/search?q=Devery+Jacobs), [Cate Blanchett](https://google.com/search?q=Cate+Blanchett), [Jon Favreau](https://google.com/search?q=Jon+Favreau)
 
 66. Deadpool & Wolverine (July 26, 2024)  
-    **Starring:** [Ryan Reynolds](https://google.com/search?q=Ryan+Reynolds), [Hugh Jackman](https://google.com/search?q=Hugh+Jackman), [Emma Corrin](https://google.com/search?q=Emma+Corrin), [Morena Baccarin](https://google.com/search?q=Morena+Baccarin)
+    **Starring:** [Ryan Reynolds](https://google.com/search?q=Ryan+Reynolds), [Hugh Jackman](https://google.com/search?q=Hugh+Jackman), [Emma Corrin](https://google.com/search?q=Emma+Corrin), [Morena Baccarin](https://google.com/search?q=Morena+Baccarin)  
     **Directed By:** [Shawn Levy](https://google.com/search?q=Shawn+Levy)
 
 67. Agatha All Along: Season 1 (September 18, 2024)  
@@ -306,14 +306,14 @@
     **Starring:** [Jeffrey Wright](https://google.com/search?q=Jeffrey+Wright), [Chadwick Boseman](https://google.com/search?q=Chadwick+Boseman), [Hayley Atwell](https://google.com/search?q=Hayley+Atwell), [Dominic Cooper](https://google.com/search?q=Dominic+Cooper)
 
 69. Captain America: Brave New World (February 14, 2025)  
-    **Starring:** [Anthony Mackie](https://google.com/search?q=Anthony+Mackie), [Harrison Ford](https://google.com/search?q=Harrison+Ford), [Tim Blake Nelson](https://google.com/search?q=Tim+Blake+Nelson), [Danny Ramirez](https://google.com/search?q=Danny+Ramirez)
+    **Starring:** [Anthony Mackie](https://google.com/search?q=Anthony+Mackie), [Harrison Ford](https://google.com/search?q=Harrison+Ford), [Tim Blake Nelson](https://google.com/search?q=Tim+Blake+Nelson), [Danny Ramirez](https://google.com/search?q=Danny+Ramirez)  
     **Directed By:** [Julius Onah](https://google.com/search?q=Julius+Onah)
 
 70. Daredevil: Born Again: Season 1 (March 4, 2025)  
     **Starring:** [Margarita Levieva](https://google.com/search?q=Margarita+Levieva), [Genneya Walton](https://google.com/search?q=Genneya+Walton), [Charlie Cox](https://google.com/search?q=Charlie+Cox), [Wilson Bethel](https://google.com/search?q=Wilson+Bethel)
 
 71. Thunderbolts\* (May 2, 2025)  
-    **Starring:** [Florence Pugh](https://google.com/search?q=Florence+Pugh), [Sebastian Stan](https://google.com/search?q=Sebastian+Stan), [David Harbour](https://google.com/search?q=David+Harbour), [Wyatt Russell](https://google.com/search?q=Wyatt+Russell)
+    **Starring:** [Florence Pugh](https://google.com/search?q=Florence+Pugh), [Sebastian Stan](https://google.com/search?q=Sebastian+Stan), [David Harbour](https://google.com/search?q=David+Harbour), [Wyatt Russell](https://google.com/search?q=Wyatt+Russell)  
     **Directed By:** [Jake Schreier](https://google.com/search?q=Jake+Schreier)
 
 72. Eyes of Wakanda (animated series) (August 1, 2025)  
