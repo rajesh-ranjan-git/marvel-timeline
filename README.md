@@ -316,7 +316,7 @@
     **Starring:** Florence Pugh, Sebastian Stan, David Harbour, Wyatt Russell  
     **Directed By:** Jake Schreier
 
-72. Eyes of Wakanda (animated series) (August 1, 2025)
+72. Eyes of Wakanda (animated series) (August 1, 2025)  
     **Starring:** Winnie Harlow, Danai Gurira, Cress Williams
 
 ## Marvel Cinematic Universe upcoming movies and shows
