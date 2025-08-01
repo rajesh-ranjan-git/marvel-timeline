@@ -55,14 +55,14 @@
 
 ### Phase Six (2025-2027)
 
-37. The Fantastic Four: First Steps (July 25, 2025)
+37. The Fantastic Four: First Steps (July 25, 2025) https://google.com/search?q=chris+evans
 38. Avengers: Doomsday (December 18, 2026)
 39. Avengers: Secret Wars (December 17, 2027)
 
 ## Marvel Cinematic Universe movies and shows in CHronological Order
 
-1. Captain America: The First Avenger (July 22, 2011)
-   **Starring:** Chris Evans, Hayley Atwell, Sebastian Stan, Tommy Lee Jones
+1. Captain America: The First Avenger (July 22, 2011)  
+   **Starring:** Chris Evans, Hayley Atwell, Sebastian Stan, Tommy Lee Jones  
    **Directed By:** Joe Johnston
 
 2. Marvel One-Shot: Agent Carter (2013)
