@@ -333,40 +333,40 @@
 
 ### Some movies outside of timeline
 
-1. Spider-Man (May 24, 2002)
-   **Starring:** [Tobey Maguire](https://google.com/search?q=Tobey+Maguire), [Kirsten Dunst](https://google.com/search?q=Kirsten+Dunst), [Willem Dafoe](https://google.com/search?q=Willem+Dafoe), [James Franco](https://google.com/search?q=James+Franco), [Elizabeth Banks](https://google.com/search?q=Elizabeth+Banks), [Joe Manganiello](https://google.com/search?q=Joe+Manganiello), [Cliff Robertson](https://google.com/search?q=Cliff+Robertson), [J. K. Simmons](https://google.com/search?q=J.+K.+Simmons)
+1. Spider-Man (May 24, 2002)  
+   **Starring:** [Tobey Maguire](https://google.com/search?q=Tobey+Maguire), [Kirsten Dunst](https://google.com/search?q=Kirsten+Dunst), [Willem Dafoe](https://google.com/search?q=Willem+Dafoe), [James Franco](https://google.com/search?q=James+Franco), [Elizabeth Banks](https://google.com/search?q=Elizabeth+Banks), [Joe Manganiello](https://google.com/search?q=Joe+Manganiello), [Cliff Robertson](https://google.com/search?q=Cliff+Robertson), [J. K. Simmons](https://google.com/search?q=J.+K.+Simmons)  
    **Directed By:** [Sam Raimi](https://google.com/search?q=Sam+Raimi)
 
-2. Spider-Man 2 (July 23, 2004)
-   **Starring:** [Tobey Maguire](https://google.com/search?q=Tobey+Maguire), [Stan Lee](https://google.com/search?q=Stan+Lee), [Kirsten Dunst](https://google.com/search?q=Kirsten+Dunst), [Alfred Molina](https://google.com/search?q=Alfred+Molina), [Willem Dafoe](https://google.com/search?q=Willem+Dafoe), [James Franco](https://google.com/search?q=James+Franco), [Bruce Campbell](https://google.com/search?q=Bruce+Campbell)
+2. Spider-Man 2 (July 23, 2004)  
+   **Starring:** [Tobey Maguire](https://google.com/search?q=Tobey+Maguire), [Stan Lee](https://google.com/search?q=Stan+Lee), [Kirsten Dunst](https://google.com/search?q=Kirsten+Dunst), [Alfred Molina](https://google.com/search?q=Alfred+Molina), [Willem Dafoe](https://google.com/search?q=Willem+Dafoe), [James Franco](https://google.com/search?q=James+Franco), [Bruce Campbell](https://google.com/search?q=Bruce+Campbell)  
    **Directed By:** [Sam Raimi](https://google.com/search?q=Sam+Raimi)
 
-3. Spider-Man 3 (May 4, 2007)
-   **Starring:** [Tobey Maguire](https://google.com/search?q=Tobey+Maguire), [Kirsten Dunst](https://google.com/search?q=Kirsten+Dunst), [Thomas Haden Church](https://google.com/search?q=Thomas+Haden+Church), [James Franco](https://google.com/search?q=James+Franco), [Bryce Dallas Howard](https://google.com/search?q=Bryce+Dallas+Howard), [J. K. Simmons](https://google.com/search?q=J.+K.+Simmons), [Bruce Campbell](https://google.com/search?q=Bruce+Campbell)
+3. Spider-Man 3 (May 4, 2007)  
+   **Starring:** [Tobey Maguire](https://google.com/search?q=Tobey+Maguire), [Kirsten Dunst](https://google.com/search?q=Kirsten+Dunst), [Thomas Haden Church](https://google.com/search?q=Thomas+Haden+Church), [James Franco](https://google.com/search?q=James+Franco), [Bryce Dallas Howard](https://google.com/search?q=Bryce+Dallas+Howard), [J. K. Simmons](https://google.com/search?q=J.+K.+Simmons), [Bruce Campbell](https://google.com/search?q=Bruce+Campbell)  
    **Directed By:** [Sam Raimi](https://google.com/search?q=Sam+Raimi)
 
-4. The Amazing Spider-Man (June 29, 2012)
-   **Starring:** [Andrew Garfield](https://google.com/search?q=Andrew+Garfield), [Emma Stone](https://google.com/search?q=Emma+Stone), [Stan Lee](https://google.com/search?q=Stan+Lee), [Sally Field](https://google.com/search?q=Sally+Field), [Chris Zylka](https://google.com/search?q=Chris+Zylka), [Kelsey Asbille](https://google.com/search?q=Kelsey+Asbille), [Rhys Ifans](https://google.com/search?q=Rhys+Ifans), [Skyler Gisondo](https://google.com/search?q=Skyler+Gisondo)
+4. The Amazing Spider-Man (June 29, 2012)  
+   **Starring:** [Andrew Garfield](https://google.com/search?q=Andrew+Garfield), [Emma Stone](https://google.com/search?q=Emma+Stone), [Stan Lee](https://google.com/search?q=Stan+Lee), [Sally Field](https://google.com/search?q=Sally+Field), [Chris Zylka](https://google.com/search?q=Chris+Zylka), [Kelsey Asbille](https://google.com/search?q=Kelsey+Asbille), [Rhys Ifans](https://google.com/search?q=Rhys+Ifans), [Skyler Gisondo](https://google.com/search?q=Skyler+Gisondo)  
    **Directed By:** [Marc Webb](https://google.com/search?q=Marc+Webb)
 
-5. The Amazing Spider-Man 2 (May 1, 2014)
-   **Starring:** [Andrew Garfield](https://google.com/search?q=Andrew+Garfield), [Emma Stone](https://google.com/search?q=Emma+Stone), [Stan Lee](https://google.com/search?q=Stan+Lee), [Dane DeHaan](https://google.com/search?q=Dane+DeHaan), [Jamie Foxx](https://google.com/search?q=Jamie+Foxx), [Denis Leary](https://google.com/search?q=Denis+Leary), [Felicity Jones](https://google.com/search?q=Felicity+Jones), [Campbell Scott](https://google.com/search?q=Campbell+Scott)
+5. The Amazing Spider-Man 2 (May 1, 2014)  
+   **Starring:** [Andrew Garfield](https://google.com/search?q=Andrew+Garfield), [Emma Stone](https://google.com/search?q=Emma+Stone), [Stan Lee](https://google.com/search?q=Stan+Lee), [Dane DeHaan](https://google.com/search?q=Dane+DeHaan), [Jamie Foxx](https://google.com/search?q=Jamie+Foxx), [Denis Leary](https://google.com/search?q=Denis+Leary), [Felicity Jones](https://google.com/search?q=Felicity+Jones), [Campbell Scott](https://google.com/search?q=Campbell+Scott)  
    **Directed By:** [Marc Webb](https://google.com/search?q=Marc+Webb)
 
-6. Venom (October 5, 2018)
-   **Starring:** [Tom Hardy](https://google.com/search?q=Tom+Hardy), [Michelle Williams](https://google.com/search?q=Michelle+Williams), [Riz Ahmed](https://google.com/search?q=Riz+Ahmed), [Jenny Slate](https://google.com/search?q=Jenny+Slate), [Woody Harrelson](https://google.com/search?q=Woody+Harrelson), [Scott Haze](https://google.com/search?q=Scott+Haze), [Reid Scott](https://google.com/search?q=Reid+Scott), [Peggy Lu](https://google.com/search?q=Peggy+Lu)
+6. Venom (October 5, 2018)  
+   **Starring:** [Tom Hardy](https://google.com/search?q=Tom+Hardy), [Michelle Williams](https://google.com/search?q=Michelle+Williams), [Riz Ahmed](https://google.com/search?q=Riz+Ahmed), [Jenny Slate](https://google.com/search?q=Jenny+Slate), [Woody Harrelson](https://google.com/search?q=Woody+Harrelson), [Scott Haze](https://google.com/search?q=Scott+Haze), [Reid Scott](https://google.com/search?q=Reid+Scott), [Peggy Lu](https://google.com/search?q=Peggy+Lu)  
    **Directed By:** [Ruben Fleischer](https://google.com/search?q=Ruben+Fleischer)
 
-7. Venom: Let There Be Carnage (October 1, 2021)
-   **Starring:** [Tom Hardy](https://google.com/search?q=Tom+Hardy), [Stephen Graham](https://google.com/search?q=Stephen+Graham), [Woody Harrelson](https://google.com/search?q=Woody+Harrelson), [](https://google.com/search?q=), [Michelle Williams](https://google.com/search?q=Michelle+Williams), [Naomie Harris](https://google.com/search?q=Naomie+Harris), [Peggy Lu](https://google.com/search?q=Peggy+Lu), [Gary A. Hecker](https://google.com/search?q=Gary+A.+Hecker), [Stan Lee](https://google.com/search?q=Stan+Lee)
+7. Venom: Let There Be Carnage (October 1, 2021)  
+   **Starring:** [Tom Hardy](https://google.com/search?q=Tom+Hardy), [Stephen Graham](https://google.com/search?q=Stephen+Graham), [Woody Harrelson](https://google.com/search?q=Woody+Harrelson), [](https://google.com/search?q=), [Michelle Williams](https://google.com/search?q=Michelle+Williams), [Naomie Harris](https://google.com/search?q=Naomie+Harris), [Peggy Lu](https://google.com/search?q=Peggy+Lu), [Gary A. Hecker](https://google.com/search?q=Gary+A.+Hecker), [Stan Lee](https://google.com/search?q=Stan+Lee)  
    **Directed By:** [Andy Serkis](https://google.com/search?q=Andy+Serkis)
 
-8. Venom: The Last Dance (October 25, 2024)
-   **Starring:** [Tom Hardy](https://google.com/search?q=Tom+Hardy), [Juno Temple](https://google.com/search?q=Juno+Temple), [Rhys Ifans](https://google.com/search?q=Rhys+Ifans), [Clark Backo](https://google.com/search?q=Clark+Backo), [Chiwetel Ejiofor](https://google.com/search?q=Chiwetel+Ejiofor), [Stephen Graham](https://google.com/search?q=Stephen+Graham), [Brooke Carter](https://google.com/search?q=Brooke+Carter), [Alanna Ubach](https://google.com/search?q=Alanna+Ubach)
+8. Venom: The Last Dance (October 25, 2024)  
+   **Starring:** [Tom Hardy](https://google.com/search?q=Tom+Hardy), [Juno Temple](https://google.com/search?q=Juno+Temple), [Rhys Ifans](https://google.com/search?q=Rhys+Ifans), [Clark Backo](https://google.com/search?q=Clark+Backo), [Chiwetel Ejiofor](https://google.com/search?q=Chiwetel+Ejiofor), [Stephen Graham](https://google.com/search?q=Stephen+Graham), [Brooke Carter](https://google.com/search?q=Brooke+Carter), [Alanna Ubach](https://google.com/search?q=Alanna+Ubach)  
    **Directed By:** [Kelly Marcel](https://google.com/search?q=Kelly+Marcel)
 
-9. Daredevil (February 14, 2003)
-   **Starring:** [Ben Affleck](https://google.com/search?q=Ben+Affleck), [Michael Clarke Duncan](https://google.com/search?q=Michael+Clarke+Duncan), [Carrie Geiben](https://google.com/search?q=Carrie+Geiben), [Jon Favreau](https://google.com/search?q=Jon+Favreau), [Ellen Pompeo](https://google.com/search?q=Ellen+Pompeo), [Scott Terra](https://google.com/search?q=Scott+Terra), [Joe Pantoliano](https://google.com/search?q=Joe+Pantoliano), [Kevin Smith](https://google.com/search?q=Kevin+Smith)
+9. Daredevil (February 14, 2003)  
+   **Starring:** [Ben Affleck](https://google.com/search?q=Ben+Affleck), [Michael Clarke Duncan](https://google.com/search?q=Michael+Clarke+Duncan), [Carrie Geiben](https://google.com/search?q=Carrie+Geiben), [Jon Favreau](https://google.com/search?q=Jon+Favreau), [Ellen Pompeo](https://google.com/search?q=Ellen+Pompeo), [Scott Terra](https://google.com/search?q=Scott+Terra), [Joe Pantoliano](https://google.com/search?q=Joe+Pantoliano), [Kevin Smith](https://google.com/search?q=Kevin+Smith)  
    **Directed By:** [Mark Steven Johnson](https://google.com/search?q=Mark+Steven+Johnson)
 
 ## Marvel Cinematic Universe upcoming movies and shows
