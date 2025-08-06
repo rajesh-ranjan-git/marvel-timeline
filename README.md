@@ -550,5 +550,7 @@
 
 17. [Nova](https://google.com/search?q=nova+upcoming+mcu)  
     **Premiere Date:** TBA
+    
+### There will be new additions soon - watch out!
 
 ## Thank you for stopping by!
