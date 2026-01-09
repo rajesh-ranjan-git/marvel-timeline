@@ -97,128 +97,128 @@
    **Starring:** [James McAvoy](https://google.com/search?q=James+McAvoy), [Michael Fassbender](https://google.com/search?q=Michael+Fassbender), [Rose Byrne](https://google.com/search?q=Rose+Byrne), [January Jones](https://google.com/search?q=January+Jones), [Oliver Platt](https://google.com/search?q=Oliver+Platt), [Kevin Bacon](https://google.com/search?q=Kevin+Bacon)  
    **Directed By:** [Matthew Vaughn](https://google.com/search?q=Matthew+Vaughn)
 
-6. [X-Men Origins: Wolverine](https://google.com/search?q=x-men+origins+wolverine+2009) (June 19, 2009)  
+6. [X-Men: Days of Future Past](https://google.com/search?q=x-men+days+of+future+past+2014) (May 23, 2014)  
+   **Starring:** [Bryan Singer](https://google.com/search?q=Bryan+Singer), [James McAvoy](https://google.com/search?q=James+McAvoy), [Hugh Jackman](https://google.com/search?q=Hugh+Jackman), [Michael Fassbender](https://google.com/search?q=Michael+Fassbender), [Patrick Stewart](https://google.com/search?q=Patrick+Stewart), [Jennifer Lawrence](https://google.com/search?q=Jennifer+Lawrence), [Ian McKellen](https://google.com/search?q=Ian+McKellen), [Evan Peters](https://google.com/search?q=Evan+Peters), [Nicholas Hoult](https://google.com/search?q=Nicholas+Hoult)  
+   **Directed By:** [Bryan Singer](https://google.com/search?q=Bryan+Singer)
+
+7. [X-Men Origins: Wolverine](https://google.com/search?q=x-men+origins+wolverine+2009) (June 19, 2009)  
    **Starring:** [Hugh Jackman](https://google.com/search?q=Hugh+Jackman), [Liev Schreiber](https://google.com/search?q=Liev+Schreiber), [Danny Huston](https://google.com/search?q=Danny+Huston), [Dominic Monaghan](https://google.com/search?q=Dominic+Monaghan), [Ryan Reynolds](https://google.com/search?q=Ryan+Reynolds)  
    **Directed By:** [Gavin Hood](https://google.com/search?q=Gavin+Hood)
 
-7. [Captain Marvel](https://google.com/search?q=captain+marvel+2019) (March 8, 2019)  
+8. [Captain Marvel](https://google.com/search?q=captain+marvel+2019) (March 8, 2019)  
    **Starring:** [Brie Larson](https://google.com/search?q=Brie+Larson), [Samuel L. Jackson](https://google.com/search?q=Samuel+L.+Jackson), [Ben Mendelsohn](https://google.com/search?q=Ben+Mendelsohn), [Djimon Hounsou](https://google.com/search?q=Djimon+Hounsou)  
    **Directed By:** [Anna Boden, Ryan Fleck](https://google.com/search?q=Anna+Boden,+Ryan+Fleck)
 
-8. [Blade](https://google.com/search?q=blade+1998) (August 19, 1998)  
+9. [Blade](https://google.com/search?q=blade+1998) (August 19, 1998)  
    **Starring:** [Wesley Snipes](https://google.com/search?q=Wesley+Snipes), [Kris Kristofferson](https://google.com/search?q=Kris+Kristofferson), [Stephen Dorff](https://google.com/search?q=Stephen+Dorff), [Sanaa Lathan](https://google.com/search?q=Sanaa+Lathan), [N'Bushe Wright](https://google.com/search?q=N+Bushe+Wright), [Donal Logue](https://google.com/search?q=Donal+Logue), [Donal Logue](https://google.com/search?q=Donal+Logue), [Udo Kier](https://google.com/search?q=Udo+Kier), [Matt Schulze](https://google.com/search?q=Matt+Schulze)  
    **Directed By:** [Stephen Norrington](https://google.com/search?q=Stephen+Norrington)
 
-9. [Blade 2](https://google.com/search?q=blade+2+2002) (March 21, 2002)  
-   **Starring:** [Wesley Snipes](https://google.com/search?q=Wesley+Snipes), [Norman Reedus](https://google.com/search?q=Norman+Reedus),[Leonor Varela](https://google.com/search?q=Leonor+Varela), [Kris Kristofferson](https://google.com/search?q=Kris+Kristofferson), [Luke Goss](https://google.com/search?q=Luke+Goss), [Donnie Yen](https://google.com/search?q=Donnie+Yen), [Ron Perlman](https://google.com/search?q=Ron+Perlman), [Matt Schulze](https://google.com/search?q=Matt+Schulze), [Thomas Kretschmann](https://google.com/search?q=Thomas+Kretschmann)  
-    **Directed By:** [Guillermo del Toro](https://google.com/search?q=Guillermo+del+Toro)
+10. [Blade 2](https://google.com/search?q=blade+2+2002) (March 21, 2002)  
+    **Starring:** [Wesley Snipes](https://google.com/search?q=Wesley+Snipes), [Norman Reedus](https://google.com/search?q=Norman+Reedus),[Leonor Varela](https://google.com/search?q=Leonor+Varela), [Kris Kristofferson](https://google.com/search?q=Kris+Kristofferson), [Luke Goss](https://google.com/search?q=Luke+Goss), [Donnie Yen](https://google.com/search?q=Donnie+Yen), [Ron Perlman](https://google.com/search?q=Ron+Perlman), [Matt Schulze](https://google.com/search?q=Matt+Schulze), [Thomas Kretschmann](https://google.com/search?q=Thomas+Kretschmann)  
+     **Directed By:** [Guillermo del Toro](https://google.com/search?q=Guillermo+del+Toro)
 
-10. [Blade: Trinity](https://google.com/search?q=blade+trinity+2004) (December 8, 2004)  
+11. [Blade: Trinity](https://google.com/search?q=blade+trinity+2004) (December 8, 2004)  
     **Starring:** [Jennifer Garner](https://google.com/search?q=Jennifer+Garner),[Kirsten Zien](https://google.com/search?q=Kirsten+Zien),[Terence Stamp](https://google.com/search?q=Terence+Stamp),[Goran Visnjic](https://google.com/search?q=Goran+Visnjic),[Natassia Malthe](https://google.com/search?q=Natassia+Malthe),[Paul Wu](https://google.com/search?q=Paul+Wu),[Ty Olsson](https://google.com/search?q=Ty+Olsson),[Tom Woodruff Jr.](https://google.com/search?q=Tom+Woodruff+Jr)
     **Directed By:** [David S. Goyer](https://google.com/search?q=David+S+Goyer)
 
-11. [Elektra](https://google.com/search?q=elektra+2005) (January 14, 2005)  
+12. [Elektra](https://google.com/search?q=elektra+2005) (January 14, 2005)  
     **Starring:** [Wesley Snipes](https://google.com/search?q=Wesley+Snipes), [Ryan Reynolds](https://google.com/search?q=Ryan+Reynolds), [Jessica Biel](https://google.com/search?q=Jessica+Biel), [Parker Posey](https://google.com/search?q=Parker+Posey), [Dominic Purcell](https://google.com/search?q=Dominic+Purcell), [Kris Kristofferson](https://google.com/search?q=Kris+Kristofferson), [Triple H](https://google.com/search?q=Triple+H), [Natasha Lyonne](https://google.com/search?q=Natasha+Lyonne), [John Michael Higgins](https://google.com/search?q=John+Michael+Higgins)  
     **Directed By:** [Rob Bowman](https://google.com/search?q=Rob+Bowman)
 
-12. [X-Men](https://google.com/search?q=x-men+2000) (July 14, 2000)  
+13. [X-Men](https://google.com/search?q=x-men+2000) (July 14, 2000)  
     **Starring:** [Bryan Singer](https://google.com/search?q=Bryan+Singer), [Stan Lee](https://google.com/search?q=Stan+Lee), [Jack Kirby](https://google.com/search?q=Jack+Kirby), [Tom DeSanto](https://google.com/search?q=Tom+DeSanto)  
     **Directed By:** [Bryan Singer](https://google.com/search?q=Bryan+Singer)
 
-13. [Spider-Man](https://google.com/search?q=spider+man+2002) (May 24, 2002)  
+14. [Spider-Man](https://google.com/search?q=spider+man+2002) (May 24, 2002)  
     **Starring:** [Tobey Maguire](https://google.com/search?q=Tobey+Maguire), [Kirsten Dunst](https://google.com/search?q=Kirsten+Dunst), [Willem Dafoe](https://google.com/search?q=Willem+Dafoe), [James Franco](https://google.com/search?q=James+Franco), [Elizabeth Banks](https://google.com/search?q=Elizabeth+Banks), [Joe Manganiello](https://google.com/search?q=Joe+Manganiello), [Cliff Robertson](https://google.com/search?q=Cliff+Robertson), [J. K. Simmons](https://google.com/search?q=J.+K.+Simmons)  
     **Directed By:** [Sam Raimi](https://google.com/search?q=Sam+Raimi)
 
-14. [X2: X-Men United](https://google.com/search?q=x2+x-men+united+2003) (May 2, 2003)  
+15. [X2: X-Men United](https://google.com/search?q=x2+x-men+united+2003) (May 2, 2003)  
     **Starring:** [Alan Cumming](https://google.com/search?q=Alan+Cumming), [Rebecca Romijn](https://google.com/search?q=Rebecca+Romijn), [Kelly Hu](https://google.com/search?q=Kelly+Hu), [Anna Paquin](https://google.com/search?q=Anna+Paquin), [Shawn Ashmore](https://google.com/search?q=Shawn+Ashmore), [Famke Janssen](https://google.com/search?q=Famke+Janssen), [Hugh Jackman](https://google.com/search?q=Hugh+Jackman), [Aaron Stanford](https://google.com/search?q=Aaron+Stanford), [James Marsden](https://google.com/search?q=James+Marsden)  
     **Directed By:** [Bryan Singer](https://google.com/search?q=Bryan+Singer)
 
-15. [Daredevil](https://google.com/search?q=Daredevil+2003) (February 14, 2003)  
+16. [Daredevil](https://google.com/search?q=Daredevil+2003) (February 14, 2003)  
     **Starring:** [Ben Affleck](https://google.com/search?q=Ben+Affleck), [Michael Clarke Duncan](https://google.com/search?q=Michael+Clarke+Duncan), [Carrie Geiben](https://google.com/search?q=Carrie+Geiben), [Jon Favreau](https://google.com/search?q=Jon+Favreau), [Scott Terra](https://google.com/search?q=Scott+Terra), [Ellen Pompeo](https://google.com/search?q=Ellen+Pompeo), [Kevin Smith](https://google.com/search?q=Kevin+Smith), [Joe Pantoliano](https://google.com/search?q=Joe+Pantoliano), [Frank Miller](https://google.com/search?q=Frank+Miller)  
     **Directed By:** [Mark Steven Johnson](https://google.com/search?q=Mark+Steven+Johnson)
 
-16. [Spider-Man 2](https://google.com/search?q=spider+man+2+2004) (July 23, 2004)  
+17. [Spider-Man 2](https://google.com/search?q=spider+man+2+2004) (July 23, 2004)  
     **Starring:** [Tobey Maguire](https://google.com/search?q=Tobey+Maguire), [Stan Lee](https://google.com/search?q=Stan+Lee), [Kirsten Dunst](https://google.com/search?q=Kirsten+Dunst), [Alfred Molina](https://google.com/search?q=Alfred+Molina), [Willem Dafoe](https://google.com/search?q=Willem+Dafoe), [James Franco](https://google.com/search?q=James+Franco), [Bruce Campbell](https://google.com/search?q=Bruce+Campbell)  
     **Directed By:** [Sam Raimi](https://google.com/search?q=Sam+Raimi)
 
-17. [Fantastic Four](https://google.com/search?q=fantastic+four+2005) (July 8, 2005)  
+18. [Fantastic Four](https://google.com/search?q=fantastic+four+2005) (July 8, 2005)  
     **Starring:** [Chris Evans](https://google.com/search?q=Chris+Evans), [Jessica Alba](https://google.com/search?q=Jessica+Alba), [Michael Chiklis](https://google.com/search?q=Michael+Chiklis), [Ioan Gruffudd](https://google.com/search?q=Ioan+Gruffudd), [Julian McMahon](https://google.com/search?q=Julian+McMahon), [Laurie Holden](https://google.com/search?q=Laurie+Holden), [Kerry Washington](https://google.com/search?q=Kerry+Washington), [Maria Menounos](https://google.com/search?q=Maria+Menounos), [Hamish Linklater](https://google.com/search?q=Hamish+Linklater)  
     **Directed By:** [Tim Story](https://google.com/search?q=Tim+Story)
 
-18. [X-Men: The Last Stand](https://google.com/search?q=x-men+the+last+stand+2006) (May 25, 2006)  
+19. [X-Men: The Last Stand](https://google.com/search?q=x-men+the+last+stand+2006) (May 25, 2006)  
     **Starring:** [Hugh Jackman](https://google.com/search?q=Hugh+Jackman), [Patrick Stewart](https://google.com/search?q=Patrick+Stewart), [James Marsden](https://google.com/search?q=James+Marsden), [Famke Janssen](https://google.com/search?q=Famke+Janssen), [Ian McKellen](https://google.com/search?q=Ian+McKellen), [Rebecca Romijn](https://google.com/search?q=Rebecca+Romijn), [Halle Berry](https://google.com/search?q=Halle+Berry), [Elliot Page](https://google.com/search?q=Elliot+Page), [Anna Paquin](https://google.com/search?q=Anna+Paquin)  
     **Directed By:** [Brett Ratner](https://google.com/search?q=Brett+Ratner)
 
-19. [Ghost Rider](https://google.com/search?q=ghost+rider+2007) (February 6, 2007)  
+20. [Ghost Rider](https://google.com/search?q=ghost+rider+2007) (February 6, 2007)  
     **Starring:** [Nicolas Cage](https://google.com/search?q=Nicolas+Cage), [Eva Mendes](https://google.com/search?q=Eva+Mendes), [Peter Fonda](https://google.com/search?q=Peter+Fonda), [Sam Elliott](https://google.com/search?q=Sam+Elliott), [Wes Bentley](https://google.com/search?q=Wes+Bentley), [Raquel Alessi](https://google.com/search?q=Raquel+Alessi), [Matt Long](https://google.com/search?q=Matt+Long), [Rebel Wilson](https://google.com/search?q=Rebel+Wilson), [Jessica Napier](https://google.com/search?q=Jessica+Napier)  
     **Directed By:** [Mark Steven Johnson](https://google.com/search?q=Mark+Steven+Johnson)
 
-20. [Ghost Rider: Spirit of Vengeance](https://google.com/search?q=ghost+rider+spirit+of+vengeance+2011) (February 17, 2012)  
+21. [Ghost Rider: Spirit of Vengeance](https://google.com/search?q=ghost+rider+spirit+of+vengeance+2011) (February 17, 2012)  
     **Starring:** [Nicolas Cage](https://google.com/search?q=Nicolas+Cage), [Idris Elba](https://google.com/search?q=Idris+Elba), [Johnny Whitworth](https://google.com/search?q=Johnny+Whitworth), [Violante Placido](https://google.com/search?q=Violante+Placido), [Ciarán Hinds](https://google.com/search?q=Ciarán+Hinds), [Fergus Riordan](https://google.com/search?q=Fergus+Riordan), [Christopher Lambert](https://google.com/search?q=Christopher+Lambert), [Brandon Trost](https://google.com/search?q=Brandon+Trost), [Alin Panc](https://google.com/search?q=Alin+Panc)  
     **Directed By:** [Mark Neveldine](https://google.com/search?q=Mark+Neveldine), [Brian Taylor](https://google.com/search?q=Brian+Taylor)
 
-21. [Spider-Man 3](https://google.com/search?q=spider+man+3+2007) (May 4, 2007)  
+22. [Spider-Man 3](https://google.com/search?q=spider+man+3+2007) (May 4, 2007)  
     **Starring:** [Tobey Maguire](https://google.com/search?q=Tobey+Maguire), [Kirsten Dunst](https://google.com/search?q=Kirsten+Dunst), [Thomas Haden Church](https://google.com/search?q=Thomas+Haden+Church), [James Franco](https://google.com/search?q=James+Franco), [Bryce Dallas Howard](https://google.com/search?q=Bryce+Dallas+Howard), [J. K. Simmons](https://google.com/search?q=J.+K.+Simmons), [Bruce Campbell](https://google.com/search?q=Bruce+Campbell)  
     **Directed By:** [Sam Raimi](https://google.com/search?q=Sam+Raimi)
 
-22. [Fantastic Four: Rise of the Silver Surfer](https://google.com/search?q=fantastic+four+rise+of+the+silver+surfer+2007) (June 5, 2007)  
+23. [Fantastic Four: Rise of the Silver Surfer](https://google.com/search?q=fantastic+four+rise+of+the+silver+surfer+2007) (June 5, 2007)  
     **Starring:** [Jessica Alba](https://google.com/search?q=Jessica+Alba), [Chris Evans](https://google.com/search?q=Chris+Evans), [Ioan Gruffudd](https://google.com/search?q=Ioan+Gruffudd), [Julian McMahon](https://google.com/search?q=Julian+McMahon), [Doug Jones](https://google.com/search?q=Doug+Jones), [Michael Chiklis](https://google.com/search?q=Michael+Chiklis), [Stan Lee](https://google.com/search?q=Stan+Lee), [Laurence Fishburne](https://google.com/search?q=Laurence+Fishburne), [Beau Garrett](https://google.com/search?q=Beau+Garrett)  
     **Directed By:** [Tim Story](https://google.com/search?q=Tim+Story)
 
-23. [Hulk](https://google.com/search?q=hulk+2003) (June 17, 2003)  
+24. [Hulk](https://google.com/search?q=hulk+2003) (June 17, 2003)  
     **Starring:** [Eric Bana](https://google.com/search?q=Eric+Bana), [Ang Lee](https://google.com/search?q=Ang+Lee), [Jennifer Connelly](https://google.com/search?q=Jennifer+Connelly), [Stan Lee](https://google.com/search?q=Stan+Lee), [Sam Elliott](https://google.com/search?q=Sam+Elliott), [Nick Nolte](https://google.com/search?q=Nick+Nolte), [Lou Ferrigno](https://google.com/search?q=Lou+Ferrigno), [Cara Buono](https://google.com/search?q=Cara+Buono), [Josh Lucas](https://google.com/search?q=Josh+Lucas)  
     **Directed By:** [Ang Lee](https://google.com/search?q=Ang+Lee)
 
-24. [Iron Man](https://google.com/search?q=iron+man+2008) (May 2, 2008)  
+25. [Iron Man](https://google.com/search?q=iron+man+2008) (May 2, 2008)  
     **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Terrence Howard](https://google.com/search?q=Terrence+Howard), [Gwyneth Paltrow](https://google.com/search?q=Gwyneth+Paltrow), [Jeff Bridges](https://google.com/search?q=Jeff+Bridges)  
     **Directed By:** [Jon Favreau](https://google.com/search?q=Jon+Favreau)
 
-25. [Iron Man 2](https://google.com/search?q=iron+man+2+2010) (May 7, 2010)  
+26. [Iron Man 2](https://google.com/search?q=iron+man+2+2010) (May 7, 2010)  
     **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Gwyneth Paltrow](https://google.com/search?q=Gwyneth+Paltrow), [Don Cheadle](https://google.com/search?q=Don+Cheadle), [Scarlett Johansson](https://google.com/search?q=Scarlett+Johansson)  
     **Directed By:** [Jon Favreau](https://google.com/search?q=Jon+Favreau)
 
-26. [The Incredible Hulk](https://google.com/search?q=the+incredible+hulk+2008) (June 20, 2008)  
+27. [The Incredible Hulk](https://google.com/search?q=the+incredible+hulk+2008) (June 20, 2008)  
     **Starring:** [Edward Norton](https://google.com/search?q=Edward+Norton), [Lou Ferrigno](https://google.com/search?q=Lou+Ferrigno), [Tim Roth](https://google.com/search?q=Tim+Roth), [Liv Tyler](https://google.com/search?q=Liv+Tyler), [William Hurt](https://google.com/search?q=William+Hurt), [Tim Blake Nelson](https://google.com/search?q=Tim+Blake+Nelson), [Ty Burrell](https://google.com/search?q=Ty+Burrell), [Paul Soles](https://google.com/search?q=Paul+Soles), [Peter Mensah](https://google.com/search?q=Peter+Mensah)  
     **Directed By:** [Louis Leterrier](https://google.com/search?q=Louis+Leterrier)
 
-27. [Marvel One-Shot: A Funny Thing Happened on the Way to Thor's Hammer](https://google.com/search?q=marvel+one+shot+a+funny+thing+happened+on+the+way+to+thor+s+hammer+2011) (October 25, 2011)  
+28. [Marvel One-Shot: A Funny Thing Happened on the Way to Thor's Hammer](https://google.com/search?q=marvel+one+shot+a+funny+thing+happened+on+the+way+to+thor+s+hammer+2011) (October 25, 2011)  
     **Starring:** [Clark Gregg](https://google.com/search?q=Clark+Gregg), [Jessica Manuel](https://google.com/search?q=Jessica+Manuel), [Jeff Prewett](https://google.com/search?q=Jeff+Prewett), [Zach Hudson](https://google.com/search?q=Zach+Hudson)  
     **Directed By:** [Leythum](https://google.com/search?q=Leythum)
 
-28. [Thor](https://google.com/search?q=thor+2011) (May 6, 2011)  
+29. [Thor](https://google.com/search?q=thor+2011) (May 6, 2011)  
     **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Natalie Portman](https://google.com/search?q=Natalie+Portman), [Anthony Hopkins](https://google.com/search?q=Anthony+Hopkins), [Tom Hiddleston](https://google.com/search?q=Tom+Hiddleston)  
     **Directed By:** [Kenneth Branagh](https://google.com/search?q=Kenneth+Branagh)
 
-29. [Marvel One-Shot: The Consultant](https://google.com/search?q=marvel+one+shot+the+consultant+2011) (September 13, 2011)  
+30. [Marvel One-Shot: The Consultant](https://google.com/search?q=marvel+one+shot+the+consultant+2011) (September 13, 2011)  
     **Starring:** [Clark Gregg](https://google.com/search?q=Clark+Gregg), [Maximiliano Hernandez](https://google.com/search?q=Maximiliano+Hernandez), [Deborah Knox](https://google.com/search?q=Deborah+Knox), [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.)  
     **Directed By:** [Leythum](https://google.com/search?q=Leythum)
 
-30. [Marvel's The Avengers](https://google.com/search?q=the+avengers+2012) (April 27, 2012)  
+31. [Marvel's The Avengers](https://google.com/search?q=the+avengers+2012) (April 27, 2012)  
     **Starring:** [Robert Downey Jr.](https://google.com/search?q=Robert+Downey+Jr.), [Chris Evans](https://google.com/search?q=Chris+Evans), [Mark Ruffalo](https://google.com/search?q=Mark+Ruffalo), [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth)  
     **Directed By:** [Joss Whedon](https://google.com/search?q=Joss+Whedon)
 
-31. [Item 47](https://google.com/search?q=item+47+2012) (September 25, 2012)  
+32. [Item 47](https://google.com/search?q=item+47+2012) (September 25, 2012)  
     **Starring:** [Lizzy Caplan](https://google.com/search?q=Lizzy+Caplan), [Jesse Bradford](https://google.com/search?q=Jesse+Bradford), [Maximiliano Hernandez](https://google.com/search?q=Maximiliano+Hernandez), [Titus Welliver](https://google.com/search?q=Titus+Welliver)  
     **Directed By:** [Louis D'Esposito](https://google.com/search?q=Louis+D'Esposito)
 
-32. [Agents of S.H.I.E.L.D.](https://google.com/search?q=agents+of+S.H.I.E.L.D.+2013) (September 24, 2013)  
+33. [Agents of S.H.I.E.L.D.](https://google.com/search?q=agents+of+S.H.I.E.L.D.+2013) (September 24, 2013)  
     **Starring:** [Clark Gregg](https://google.com/search?q=Clark+Gregg), [Chloe Bennet](https://google.com/search?q=Chloe+Bennet), [Iain De Caestecker](https://google.com/search?q=Iain+De+Caestecker), [Elizabeth Henstridge](https://google.com/search?q=Elizabeth+Henstridge), [Ming-Na Wen](https://google.com/search?q=Ming-Na++Wen), [Brett Dalton](https://google.com/search?q=Brett+Dalton), [Jeff Ward](https://google.com/search?q=Jeff+Ward), [Henry Simmons](https://google.com/search?q=Henry+Simmons), [Joss Whedon](https://google.com/search?q=Joss+Whedon)
 
-33. [Thor: The Dark World](https://google.com/search?q=thor+the+dark+world+2013) (November 8, 2013)  
+34. [Thor: The Dark World](https://google.com/search?q=thor+the+dark+world+2013) (November 8, 2013)  
     **Starring:** [Chris Hemsworth](https://google.com/search?q=Chris+Hemsworth), [Natalie Portman](https://google.com/search?q=Natalie+Portman), [Tom Hiddleston](https://google.com/search?q=Tom+Hiddleston), [Stellan Skarsgård](https://google.com/search?q=Stellan+Skarsgård)  
     **Directed By:** [Alan Taylor](https://google.com/search?q=Alan+Taylor)
 
-34. [The Wolverine](https://google.com/search?q=the+wolverine+2013) (July 26, 2013)  
+35. [The Wolverine](https://google.com/search?q=the+wolverine+2013) (July 26, 2013)  
     **Starring:** [Hugh Jackman](https://google.com/search?q=Hugh+Jackman), [Tao Okamoto](https://google.com/search?q=Tao+Okamoto), [Rila Fukushima](https://google.com/search?q=Rila+Fukushima), [Hiroyuki Sanada](https://google.com/search?q=Hiroyuki+Sanada), [Svetlana Khodchenkova](https://google.com/search?q=Svetlana+Khodchenkova), [Will Yun Lee](https://google.com/search?q=Will+Yun+Lee), [Famke Janssen](https://google.com/search?q=Famke+Janssen), [Brian Tee](https://google.com/search?q=Brian+Tee), [Patrick Stewart](https://google.com/search?q=Patrick+Stewart)  
     **Directed By:** [James Mangold](https://google.com/search?q=James+Mangold)
 
-35. [Marvel One-Shot All Hail the King](https://google.com/search?q=Marvel+One+Shot+All+Hail+the+King+2014) (February 4, 2014)  
+36. [Marvel One-Shot All Hail the King](https://google.com/search?q=Marvel+One+Shot+All+Hail+the+King+2014) (February 4, 2014)  
     **Starring:** [Ben Kingsley](https://google.com/search?q=Ben+Kingsley), [Sam Rockwell](https://google.com/search?q=Sam+Rockwell), [Scoot McNairy](https://google.com/search?q=Scoot+McNairy), [Matt Gerald](https://google.com/search?q=Matt+Gerald), [Jose Abril](https://google.com/search?q=Jose+Abril), [Lester Speight](https://google.com/search?q=Lester+Speight), [Cuete Yeska](https://google.com/search?q=Cuete+Yeska), [Marcus Natividad](https://google.com/search?q=Marcus+Natividad)  
     **Directed By:** [Drew Pearce](https://google.com/search?q=Drew+Pearce)
-
-36. [X-Men: Days of Future Past](https://google.com/search?q=x-men+days+of+future+past+2014) (May 23, 2014)  
-    **Starring:** [Bryan Singer](https://google.com/search?q=Bryan+Singer), [James McAvoy](https://google.com/search?q=James+McAvoy), [Hugh Jackman](https://google.com/search?q=Hugh+Jackman), [Michael Fassbender](https://google.com/search?q=Michael+Fassbender), [Patrick Stewart](https://google.com/search?q=Patrick+Stewart), [Jennifer Lawrence](https://google.com/search?q=Jennifer+Lawrence), [Ian McKellen](https://google.com/search?q=Ian+McKellen), [Evan Peters](https://google.com/search?q=Evan+Peters), [Nicholas Hoult](https://google.com/search?q=Nicholas+Hoult)  
-    **Directed By:** [Bryan Singer](https://google.com/search?q=Bryan+Singer)
 
 37. [Fantastic Four](https://google.com/search?q=fantastic+four+2015) (August 6, 2015)  
     **Starring:** [Simon Kinberg](https://google.com/search?q=Simon+Kinberg), [Matthew Vaughn](https://google.com/search?q=Matthew+Vaughn), [Gregory Goodman](https://google.com/search?q=Gregory+Goodman), [Hutch Parker](https://google.com/search?q=Hutch+Parker), [Robert Kulzer](https://google.com/search?q=Robert+Kulzer)  
