@@ -540,61 +540,62 @@
 126. [Ironheart](https://google.com/search?q=ironheart+2025) (June 24, 2025)  
      **Starring:** [Anthony Ramos](https://google.com/search?q=Anthony+Ramos), [Sacha Baron Cohen](https://google.com/search?q=Sacha+Baron+Cohen), [Lyric Ross](https://google.com/search?q=Lyric+Ross), [Shea Couleé](https://google.com/search?q=Shea+Couleé), [Alden Ehrenreich](https://google.com/search?q=Alden+Ehrenreich), [Manny Montana](https://google.com/search?q=Manny+Montana), [Dominique Thorne](https://google.com/search?q=Dominique+Thorne), [Regan Aliyah](https://google.com/search?q=Regan+Aliyah), [Zoe Terakes](https://google.com/search?q=Zoe+Terakes)
 
-127. [Eyes of Wakanda](https://google.com/search?q=eyes+of+wakanda+2025) (animated series) (August 1, 2025)  
+127. [Eyes of Wakanda](https://google.com/search?q=eyes+of+wakanda+2025) (August 1, 2025)  
      **Starring:** [Winnie Harlow](https://google.com/search?q=Winnie+Harlow), [Danai Gurira](https://google.com/search?q=Danai+Gurira), [Cress Williams](https://google.com/search?q=Cress+Williams)
      **Directed By:** [Todd Harris](https://google.com/search?q=Todd+Harris)
 
-128. [Marvel Zombies](https://google.com/search?q=marvel+zombies+2025) (animated series) (September 24, 2025)  
+128. [Marvel Zombies](https://google.com/search?q=marvel+zombies+2025) (September 24, 2025)  
+     **Starring:** [Iman Vellani](https://google.com/search?q=Elizabeth+Olsen), [Elizabeth Olsen](https://google.com/search?q=Elizabeth+Olsen), [Dominique Thorne](https://google.com/search?q=Dominique+Thorne), [Hudson Thames](https://google.com/search?q=Hudson+Thames), [Hailee Steinfeld](https://google.com/search?q=Hailee+Steinfeld), [Florence Pugh](https://google.com/search?q=Florence+Pugh), [Todd Williams](https://google.com/search?q=Todd+Williams), [Tessa Thompson](https://google.com/search?q=Tessa+Thompson)
      **Directed By:** [Bryan Andrews](https://google.com/search?q=Bryan+Andrews)
+
+129. [Wonder Man](https://google.com/search?q=wonder+man+2026) (January 27, 2026)
+     **Starring:** [Ben Kingsley](https://google.com/search?q=Ben+Kingsley), [Joe Pantoliano](https://google.com/search?q=Joe+Pantoliano), [Olivia Thirlby](https://google.com/search?q=Olivia+Thirlby), [Yahya Abdul-Mateen II](https://google.com/search?q=Yahya+Abdul-Mateen+II), [Josh Gad](https://google.com/search?q=Josh+Gad), [Zlatko Burić](https://google.com/search?q=Zlatko+Burić), [X Mayo](https://google.com/search?q=X+Mayo), [Arian Moayed](https://google.com/search?q=Arian+Moayed)
+
+130. [Daredevil: Born Again Season 2](https://google.com/search?q=daredevil+born+again+2+2026) (March 4, 2026)
+     **Starring:** [Charlie Cox](https://google.com/search?q=Charlie+Cox), [Margarita Levieva](https://google.com/search?q=Margarita+Levieva), [Deborah Ann Woll](https://google.com/search?q=Deborah+Ann+Woll), [Wilson Bethel](https://google.com/search?q=Wilson+Bethel), [Michael Gandolfini](https://google.com/search?q=Michael+Gandolfini), [Jon Bernthal](https://google.com/search?q=Jon+Bernthal), [Matthew Lillard](https://google.com/search?q=Matthew+Lillard), [Tony Dalton](https://google.com/search?q=Tony+Dalton)
+
+131. [The Punisher: One Last Kill](https://google.com/search?q=the+punisher+one+last+kill+2026) (May 12, 2026)
+     **Directed By:** [Reinaldo Marcus Green](https://google.com/search?q=Reinaldo+Marcus+Green)
 
 ## Marvel Cinematic Universe upcoming movies and shows
 
-1.  [Wonder Man](https://google.com/search?q=wonder+man+series+upcoming+mcu) (series)  
-    **Premiere Date:** December 2025
-
-2.  [Spider-Man: Brand New Day](https://google.com/search?q=spider+man+brand+new+day+upcoming+mcu)  
+1.  [Spider-Man: Brand New Day](https://google.com/search?q=spider+man+brand+new+day+upcoming+mcu)  
     **Premiere Date:** July 31, 2026
 
-3.  [Avengers: Doomsday](https://google.com/search?q=avengers+doomsday+2026+upcoming+mcu) (2026)  
+2.  [Avengers: Doomsday](https://google.com/search?q=avengers+doomsday+2026+upcoming+mcu) (2026)  
     **Premiere Date:** December 18, 2026
 
-4.  [The Punisher Special](https://google.com/search?q=the+punisher+special+upcoming+mcu)  
+3.  [Vision Quest](https://google.com/search?q=vision+quest+series+upcoming+mcu) (series)  
     **Premiere Date:** 2026
 
-5.  [Daredevil: Born Again Season 2](https://google.com/search?q=daredevil+born+again+season+2+upcoming+mcu)  
-    **Premiere Date:** 2026
-
-6.  [Vision Quest](https://google.com/search?q=vision+quest+series+upcoming+mcu) (series)  
-    **Premiere Date:** 2026
-
-7.  [Avengers: Secret Wars](https://google.com/search?q=avengers+secret+wars+2027+upcoming+mcu) (2027)  
+4.  [Avengers: Secret Wars](https://google.com/search?q=avengers+secret+wars+2027+upcoming+mcu) (2027)  
     **Premiere Date:** December 17, 2027
 
-8.  [Armor Wars](https://google.com/search?q=armor+wars+upcoming+mcu)  
+5.  [Armor Wars](https://google.com/search?q=armor+wars+upcoming+mcu)  
     **Premiere Date:** TBA
 
-9.  [Blade](https://google.com/search?q=blade+2025+upcoming+mcu) (2025)  
+6.  [Blade](https://google.com/search?q=blade+2025+upcoming+mcu) (2025)  
     **Premiere Date:** TBD
 
-10. [Shang-Chi 2](https://google.com/search?q=shang+chi+2+upcoming+mcu)  
+7.  [Shang-Chi 2](https://google.com/search?q=shang+chi+2+upcoming+mcu)  
     **Premiere Date:** TBA
 
-11. [Black Panther 3](https://google.com/search?q=black+panther+3+upcoming+mcu)  
+8.  [Black Panther 3](https://google.com/search?q=black+panther+3+upcoming+mcu)  
     **Premiere Date:** TBA
 
-12. [The X-Men](https://google.com/search?q=the+x-men+upcoming+mcu)  
+9.  [The X-Men](https://google.com/search?q=the+x-men+upcoming+mcu)  
     **Premiere Date:** TBA
 
-13. [Ryan Coogler’s Wakanda-Set Television Series](https://google.com/search?q=ryan+coogler+s+wakanda+set+television+series+upcoming+mcu)  
+10. [Ryan Coogler’s Wakanda-Set Television Series](https://google.com/search?q=ryan+coogler+s+wakanda+set+television+series+upcoming+mcu)  
     **Premiere Date:** TBA
 
-14. [Untitled Okoye Series](https://google.com/search?q=untitled+okoye+series+upcoming+mcu)  
+11. [Untitled Okoye Series](https://google.com/search?q=untitled+okoye+series+upcoming+mcu)  
     **Premiere Date:** TBA
 
-15. [Untitled Scarlett Johansson Production](https://google.com/search?q=untitled+scarlett+johansson+production+upcmoing+mcu)  
+12. [Untitled Scarlett Johansson Production](https://google.com/search?q=untitled+scarlett+johansson+production+upcmoing+mcu)  
     **Premiere Date:** TBA
 
-16. [Nova](https://google.com/search?q=nova+upcoming+mcu)  
+13. [Nova](https://google.com/search?q=nova+upcoming+mcu)  
     **Premiere Date:** TBA
 
 ### There will be new additions soon - watch out!
